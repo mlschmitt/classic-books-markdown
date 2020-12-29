@@ -1,3 +1,10 @@
+# Title: The Mayor of Casterbridge
+
+## Author: Thomas Hardy
+
+## Year: 1886
+
+-------
 
 ## Chapter 1 
 

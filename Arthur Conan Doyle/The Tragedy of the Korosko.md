@@ -1,3 +1,10 @@
+# Title: The Tragedy of the Korosko
+
+## Author: Arthur Conan Doyle
+
+## Year: 1898
+
+-------
 
 ##  CHAPTER I 
 

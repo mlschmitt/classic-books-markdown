@@ -1,3 +1,10 @@
+# Title: White Fang
+
+## Author: Jack London
+
+## Year: 1906
+
+-------
 
 ### CHAPTER I--THE TRAIL OF THE MEAT
 

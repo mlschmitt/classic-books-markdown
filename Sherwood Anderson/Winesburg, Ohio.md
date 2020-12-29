@@ -1,3 +1,10 @@
+# Title: Winesburg, Ohio
+
+## Author: Sherwood Anderson
+
+## Year: 1919
+
+-------
 
 ## THE BOOK OF THE GROTESQUE
 

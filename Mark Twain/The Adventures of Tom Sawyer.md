@@ -1,3 +1,10 @@
+# Title: The Adventures of Tom Sawyer
+
+## Author: Mark Twain
+
+## Year: 1876
+
+-------
 
 ##  CHAPTER I 
 

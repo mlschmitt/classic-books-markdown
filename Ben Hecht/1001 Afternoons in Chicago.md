@@ -1,3 +1,10 @@
+# Title: 1001 Afternoons in Chicago
+
+## Author: Ben Hecht
+
+## Year: 1921
+
+-------
 
 ## Preface
 

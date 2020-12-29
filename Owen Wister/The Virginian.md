@@ -1,3 +1,10 @@
+# Title: The Virginian
+
+## Author: Owen Wister
+
+## Year: 1902
+
+-------
 
 ##  I. ENTER THE MAN
 

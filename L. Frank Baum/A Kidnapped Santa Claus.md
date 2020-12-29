@@ -1,3 +1,10 @@
+# Title: A Kidnapped Santa Claus
+
+## Author: L. Frank Baum
+
+## Year: 1904
+
+-------
 Santa Claus lives in the Laughing Valley, where stands the big, rambling castle in which his toys are manufactured. His workmen, selected from the ryls, knooks, pixies and fairies, live with him, and every one is as busy as can be from one year's end to another.
 
 It is called the Laughing Valley because everything there is happy and gay. The brook chuckles to itself as it leaps rollicking between its green banks; the wind whistles merrily in the trees; the sunbeams dance lightly over the soft grass, and the violets and wild flowers look smilingly up from their green nests. To laugh one needs to be happy; to be happy one needs to be content. And throughout the Laughing Valley of Santa Claus contentment reigns supreme.

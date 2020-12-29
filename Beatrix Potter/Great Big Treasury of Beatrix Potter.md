@@ -1,3 +1,10 @@
+# Title: Great Big Treasury of Beatrix Potter
+
+## Author: Beatrix Potter
+
+## Year: 1992
+
+-------
 
 ##  THE TALE OF PETER RABBIT
 

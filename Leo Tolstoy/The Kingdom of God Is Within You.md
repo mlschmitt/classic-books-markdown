@@ -1,3 +1,10 @@
+# Title: The Kingdom of God Is Within You
+
+## Author: Leo Tolstoy
+
+## Year: 1894
+
+-------
 _Translated by Aline Delano_
 
 ## CHAPTER I

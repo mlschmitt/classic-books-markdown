@@ -1,3 +1,10 @@
+# Title: The Night of Temptation
+
+## Author: Victoria Cross
+
+## Year: 1912
+
+-------
 
 ## CHAPTER I  - HOME
 

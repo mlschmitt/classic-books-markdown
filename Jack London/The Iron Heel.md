@@ -1,3 +1,10 @@
+# Title: The Iron Heel
+
+## Author: Jack London
+
+## Year: 1908
+
+-------
 
 ##  FOREWORD
 

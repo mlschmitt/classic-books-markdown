@@ -1,3 +1,10 @@
+# Title: Men Like Gods
+
+## Author: H.G. Wells
+
+## Year: 1923
+
+-------
 
 ## CHAPTER THE FIRST - MR. BARNSTAPLE TAKES A HOLIDAY
 

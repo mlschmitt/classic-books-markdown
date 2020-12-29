@@ -1,3 +1,10 @@
+# Title: Green Tea
+
+## Author: J. Sheridan LeFanu
+
+## Year: 1872
+
+-------
 
 ## PROLOGUE - _Martin Hesselius, the German Physician_
 

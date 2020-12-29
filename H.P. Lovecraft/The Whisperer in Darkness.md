@@ -1,3 +1,10 @@
+# Title: The Whisperer in Darkness
+
+## Author: H.P. Lovecraft
+
+## Year: 1931
+
+-------
 
 ## Chapter 1
 

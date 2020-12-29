@@ -1,3 +1,10 @@
+# Title: Up from Slavery
+
+## Author: Booker T. Washington
+
+## Year: 1901
+
+-------
 
 ##  Preface 
 

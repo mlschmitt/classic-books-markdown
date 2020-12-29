@@ -1,3 +1,10 @@
+# Title: Tales of a Wayside Inn
+
+## Author: Henry Wadsworth Longfellow
+
+## Year: 1863
+
+-------
 
 ## PRELUDE.
 

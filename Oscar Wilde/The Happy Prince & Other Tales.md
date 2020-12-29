@@ -1,3 +1,10 @@
+# Title: The Happy Prince & Other Tales
+
+## Author: Oscar Wilde
+
+## Year: 1888
+
+-------
 
 ## The Happy Prince.
 

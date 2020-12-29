@@ -1,3 +1,10 @@
+# Title: The Terror
+
+## Author: Arthur Machen
+
+## Year: 1917
+
+-------
 
 ### Chapter I - _The Coming of the Terror_
 

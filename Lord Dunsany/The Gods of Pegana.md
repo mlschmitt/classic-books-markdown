@@ -1,3 +1,10 @@
+# Title: The Gods of Pegana
+
+## Author: Lord Dunsany
+
+## Year: 1905
+
+-------
 
 ## Preface
 

@@ -1,3 +1,10 @@
+# Title: The Strange Case of Dr. Jekyll and Mr. Hyde
+
+## Author: Robert Louis Stevenson
+
+## Year: 1886
+
+-------
 
 ## STORY OF THE DOOR
 

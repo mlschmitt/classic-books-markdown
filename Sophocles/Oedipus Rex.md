@@ -1,3 +1,10 @@
+# Title: Oedipus Rex
+
+## Author: Sophocles
+
+## Year: 429 BC
+
+-------
 
 ####  Scene: Thebes. Before the Palace of Oedipus.
 

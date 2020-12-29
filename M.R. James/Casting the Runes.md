@@ -1,3 +1,10 @@
+# Title: Casting the Runes
+
+## Author: M.R. James
+
+## Year: 1911
+
+-------
 _April 15th, 190-_
 
 Dear Sir,

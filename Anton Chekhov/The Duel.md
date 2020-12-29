@@ -1,3 +1,10 @@
+# Title: The Duel
+
+## Author: Anton Chekhov
+
+## Year: 1891
+
+-------
 
 ### I
 

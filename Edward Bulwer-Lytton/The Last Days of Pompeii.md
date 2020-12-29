@@ -1,3 +1,10 @@
+# Title: The Last Days of Pompeii
+
+## Author: Edward Bulwer-Lytton
+
+## Year: 1834
+
+-------
 
 ##  BOOK THE FIRST
 

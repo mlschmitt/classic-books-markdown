@@ -1,3 +1,10 @@
+# Title: The Man Who Was Thursday
+
+## Author: G.K. Chesterton
+
+## Year: 1908
+
+-------
 
 ##  CHAPTER I. THE TWO POETS OF SAFFRON PARK 
 

@@ -1,3 +1,10 @@
+# Title: Lorna Doone
+
+## Author: R.D. Blackmore
+
+## Year: 1869
+
+-------
 
 ##  CHAPTER I - ELEMENTS OF EDUCATION
 

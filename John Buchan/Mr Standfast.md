@@ -1,3 +1,10 @@
+# Title: Mr Standfast
+
+## Author: John Buchan
+
+## Year: 1919
+
+-------
 
 ##  PART I
 

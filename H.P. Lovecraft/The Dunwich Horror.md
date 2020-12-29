@@ -1,3 +1,10 @@
+# Title: The Dunwich Horror
+
+## Author: H.P. Lovecraft
+
+## Year: 1929
+
+-------
 "Gorgons, and Hydras, and Chimeras--dire stories of Celaeno and the Harpies--may reproduce themselves in the brain of superstition--_but they were there before_. They are transcripts, types--the archetypes are in us, and eternal. How else should the recital of that which we know in a waking sense to be false come to affect us at all? Is it that we naturally conceive terror from such objects, considered in their capacity of being able to inflict upon us bodily injury? Oh, least of all! _These terrors are of older standing. They date beyond body_--or without the body, they would have been the same.... That the kind of fear here treated is purely spiritual--that it is strong in proportion as it is objectless on earth, that it predominates in the period of our sinless infancy--are difficulties the solution of which might afford some probable insight into our ante-mundane condition, and a peep at least into the shadowland of pre-existence."
 
 -- Charles Lamb: _Witches and Other Night-Fears_.

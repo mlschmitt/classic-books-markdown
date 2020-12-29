@@ -1,3 +1,10 @@
+# Title: King of the Khyber Rifles
+
+## Author: Talbot Mundy
+
+## Year: 1916
+
+-------
 
 ##  Chapter I 
 

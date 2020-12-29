@@ -1,3 +1,10 @@
+# Title: The World Set Free
+
+## Author: H.G. Wells
+
+## Year: 1914
+
+-------
 
 ##  PRELUDE: THE SUN SNARERS
 

@@ -1,3 +1,10 @@
+# Title: The Planet Mappers
+
+## Author: E. Everett Evans
+
+## Year: 1955
+
+-------
 
 ## CHAPTER 1
 

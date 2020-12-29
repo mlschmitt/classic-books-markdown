@@ -1,3 +1,10 @@
+# Title: The Wendigo
+
+## Author: Algernon Blackwood
+
+## Year: 1910
+
+-------
 
 ## I
 

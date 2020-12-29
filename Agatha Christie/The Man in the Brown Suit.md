@@ -1,3 +1,10 @@
+# Title: The Man in the Brown Suit
+
+## Author: Agatha Christie
+
+## Year: 1924
+
+-------
 
 ## Prologue
 

@@ -1,3 +1,10 @@
+# Title: Meditations
+
+## Author: Marcus Aurelius
+
+## Year: 170 AD
+
+-------
 _Translated by George Long_
 
 ## BOOK ONE

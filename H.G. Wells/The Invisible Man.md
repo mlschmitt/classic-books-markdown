@@ -1,3 +1,10 @@
+# Title: The Invisible Man
+
+## Author: H.G. Wells
+
+## Year: 1897
+
+-------
 
 ### CHAPTER I - THE STRANGE MAN'S ARRIVAL
 

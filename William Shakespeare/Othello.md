@@ -1,3 +1,10 @@
+# Title: Othello
+
+## Author: William Shakespeare
+
+## Year: 1603
+
+-------
 
 ### ACT I
 

@@ -1,3 +1,10 @@
+# Title: Around the Moon
+
+## Author: Jules Verne
+
+## Year: 1870
+
+-------
 
 ## PRELIMINARY CHAPTER - THE FIRST PART OF THIS WORK, AND SERVING AS A PREFACE TO THE SECOND
 

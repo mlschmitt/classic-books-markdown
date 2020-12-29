@@ -1,3 +1,10 @@
+# Title: King Solomon's Mines 
+
+## Author: H. Rider Haggard
+
+## Year: 1885
+
+-------
 
 ###  INTRODUCTION 
 

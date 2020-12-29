@@ -1,3 +1,10 @@
+# Title: The Book of Dragons
+
+## Author: Edith Nesbit
+
+## Year: 1901
+
+-------
 
 ## I. The Book of Beasts
 

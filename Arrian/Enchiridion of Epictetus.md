@@ -1,3 +1,10 @@
+# Title: Enchiridion of Epictetus
+
+## Author: Arrian
+
+## Year: 125
+
+-------
 _Translated by Thomas Wentworth Higginson_
 
 ### I

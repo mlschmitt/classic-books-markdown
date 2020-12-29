@@ -1,3 +1,10 @@
+# Title: Life on the Mississippi
+
+## Author: Mark Twain
+
+## Year: 1883
+
+-------
 
 ## Chapter 1 - The River and Its History 
 

@@ -1,3 +1,10 @@
+# Title: War and Peace
+
+## Author: Leo Tolstoy
+
+## Year: 1869
+
+-------
 _Translated by Louise and Aylmer Maude_
 
 ##  BOOK ONE: 1805 

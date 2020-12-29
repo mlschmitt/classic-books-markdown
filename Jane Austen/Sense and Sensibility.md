@@ -1,3 +1,10 @@
+# Title: Sense and Sensibility
+
+## Author: Jane Austen
+
+## Year: 1811
+
+-------
 
 ###  CHAPTER 1 
 

@@ -1,3 +1,10 @@
+# Title: The Sound of Silence
+
+## Author: Barbara Constant
+
+## Year: 1962
+
+-------
 Most people, when asked to define the ultimate in loneliness, say it's being alone in a crowd. And it takes only one slight difference to make one forever alone in the crowd....
 
 

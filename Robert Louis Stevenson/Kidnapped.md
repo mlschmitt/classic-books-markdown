@@ -1,3 +1,10 @@
+# Title: Kidnapped
+
+## Author: Robert Louis Stevenson
+
+## Year: 1886
+
+-------
 
 ##  CHAPTER I - I SET OFF UPON MY JOURNEY TO THE HOUSE OF SHAWS 
 

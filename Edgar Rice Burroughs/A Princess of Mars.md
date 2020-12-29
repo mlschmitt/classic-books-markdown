@@ -1,3 +1,10 @@
+# Title: A Princess of Mars
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1912
+
+-------
 
 ###  CHAPTER I - ON THE ARIZONA HILLS 
 

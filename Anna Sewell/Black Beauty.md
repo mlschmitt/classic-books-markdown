@@ -1,3 +1,10 @@
+# Title: Black Beauty
+
+## Author: Anna Sewell
+
+## Year: 1877
+
+-------
 
 ##  Part I 
 

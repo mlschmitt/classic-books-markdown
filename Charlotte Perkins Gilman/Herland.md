@@ -1,3 +1,10 @@
+# Title: Herland
+
+## Author: Charlotte Perkins Gilman
+
+## Year: 1915
+
+-------
 
 ##  CHAPTER 1. A Not Unnatural Enterprise
 

@@ -1,3 +1,10 @@
+# Title: Main Street
+
+## Author: Sinclair Lewis
+
+## Year: 1920
+
+-------
 This is America--a town of a few thousand, in a region of wheat and corn and dairies and little groves.
 
 The town is, in our tale, called "Gopher Prairie, Minnesota." But its Main Street is the continuation of Main Streets everywhere. The story would be the same in Ohio or Montana, in Kansas or Kentucky or Illinois, and not very differently would it be told Up York State or in the Carolina hills.

@@ -1,3 +1,10 @@
+# Title: The Faerie Queene
+
+## Author: Edmund Spenser
+
+## Year: 1590
+
+-------
 **I**
 
 Lo I the man, whose Muse whilome did maske,

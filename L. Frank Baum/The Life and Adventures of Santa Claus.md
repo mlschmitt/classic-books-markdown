@@ -1,3 +1,10 @@
+# Title: The Life and Adventures of Santa Claus
+
+## Author: L. Frank Baum
+
+## Year: 1902
+
+-------
 
 ## Part One: YOUTH
 

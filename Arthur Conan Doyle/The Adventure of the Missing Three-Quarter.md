@@ -1,3 +1,10 @@
+# Title: The Adventure of the Missing Three-Quarter
+
+## Author: Arthur Conan Doyle
+
+## Year: 1904
+
+-------
 We were fairly accustomed to receive weird telegrams at Baker Street, but I have a particular recollection of one which reached us on a gloomy February morning, some seven or eight years ago, and gave Mr. Sherlock Holmes a puzzled quarter of an hour. It was addressed to him, and ran thus:
 
 Please await me. Terrible misfortune. Right wing three-quarter missing, indispensable to-morrow. OVERTON.

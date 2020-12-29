@@ -1,3 +1,10 @@
+# Title: Les Misérables
+
+## Author: Victor Hugo
+
+## Year: 1862
+
+-------
 _Translated by Isabel F. Hapgood_
 
 ##  VOLUME I.--FANTINE.

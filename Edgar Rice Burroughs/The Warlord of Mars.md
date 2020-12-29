@@ -1,3 +1,10 @@
+# Title: The Warlord of Mars
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1914
+
+-------
 
 ###  ON THE RIVER ISS
 

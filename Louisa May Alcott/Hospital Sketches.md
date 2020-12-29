@@ -1,3 +1,10 @@
+# Title: Hospital Sketches
+
+## Author: Louisa May Alcott
+
+## Year: 1863
+
+-------
 
 ### CHAPTER I - OBTAINING SUPPLIES
 

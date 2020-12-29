@@ -1,3 +1,10 @@
+# Title: Jurgen
+
+## Author: James Branch Cabell
+
+## Year: 1919
+
+-------
 _A Comedy of Justice_
 
 Before each tarradiddle,

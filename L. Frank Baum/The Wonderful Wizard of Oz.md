@@ -1,3 +1,10 @@
+# Title: The Wonderful Wizard of Oz
+
+## Author: L. Frank Baum
+
+## Year: 1900
+
+-------
 
 ###  1. The Cyclone 
 

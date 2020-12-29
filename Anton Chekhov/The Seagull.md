@@ -1,3 +1,10 @@
+# Title: The Seagull
+
+## Author: Anton Chekhov
+
+## Year: 1896
+
+-------
 
 ##  ACT I 
 

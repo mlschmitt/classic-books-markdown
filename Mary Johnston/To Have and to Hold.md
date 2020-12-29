@@ -1,3 +1,10 @@
+# Title: To Have and to Hold
+
+## Author: Mary Johnston
+
+## Year: 1899
+
+-------
 
 ## CHAPTER I - IN WHICH I THROW AMBS-ACE 
 

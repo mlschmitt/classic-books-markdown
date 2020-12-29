@@ -1,3 +1,10 @@
+# Title: Invaders from the Infinite
+
+## Author: John W. Campbell
+
+## Year: 1961
+
+-------
 
 ## Chapter I - INVADERS
 

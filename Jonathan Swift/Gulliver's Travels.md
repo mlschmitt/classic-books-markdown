@@ -1,3 +1,10 @@
+# Title: Gulliver's Travels
+
+## Author: Jonathan Swift
+
+## Year: 1726
+
+-------
 
 ## THE PUBLISHER TO THE READER.
 

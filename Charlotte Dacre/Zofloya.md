@@ -1,3 +1,10 @@
+# Title: Zofloya
+
+## Author: Charlotte Dacre
+
+## Year: 1806
+
+-------
 
 ### Chapter 1.
 

@@ -1,3 +1,10 @@
+# Title: Tarzan and the Jewels of Opar
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1916
+
+-------
 
 ### 1 - Belgian and Arab
 

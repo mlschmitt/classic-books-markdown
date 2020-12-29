@@ -1,3 +1,10 @@
+# Title: The Sorrows of Young Werther
+
+## Author: Johann Wolfgang von Goethe
+
+## Year: 1774
+
+-------
 
 ##  PREFACE
 

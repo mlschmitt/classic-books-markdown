@@ -1,3 +1,10 @@
+# Title: On Liberty
+
+## Author: John Stuart Mill
+
+## Year: 1859
+
+-------
 
 ## I - Introductory
 

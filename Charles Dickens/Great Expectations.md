@@ -1,3 +1,10 @@
+# Title: Great Expectations
+
+## Author: Charles Dickens
+
+## Year: 1861
+
+-------
 
 ##  Chapter I 
 

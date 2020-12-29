@@ -1,3 +1,10 @@
+# Title: The Ethics
+
+## Author: Benedict de Spinoza
+
+## Year: 1677
+
+-------
 _Translated by R. H. M. Elwes_
 
 ##  PART I. CONCERNING GOD.

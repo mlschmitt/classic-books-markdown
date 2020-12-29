@@ -1,3 +1,10 @@
+# Title: Mr. Justice Harbottle
+
+## Author: J. Sheridan LeFanu
+
+## Year: 1872
+
+-------
 
 ## Prologue
 

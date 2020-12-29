@@ -1,3 +1,10 @@
+# Title: Under Fire
+
+## Author: Henri Barbusse
+
+## Year: 1916
+
+-------
 
 #### Translated by Fitzwater Wray
 

@@ -1,3 +1,10 @@
+# Title: The Man in the Moone
+
+## Author: Francis Godwin
+
+## Year: 1638
+
+-------
 Before I come to relate our extraordinary Voyage of _Domingo Gonzales_ to the World in the Moon, I will make a Halt at St. _Hellens_, or _Hellena_, which is now possest by the Honourable _East-India_ Company. It is called the Sea Inn, because the _English_ and other Nations stop there as a Place for Watering and Refreshment in their long Voyages to _India_. It was formerly seized by the _Dutch_, but retaken _May_ 6th, 1673, by Captain _Munday_, with a Squadron of _English_ Ships, and three rich _Dutch East India Ships_ made Prizes in the Harbour; since which the Company have fortified and secured it, against any future Invasion of _Dutch, Portuguese_, or _Spaniards_. It was called _Santa Helena_ by the _Portuguese_, who discovered it on St. _Hellen_'s Day, being _April_ 2.
 
 There is no Island in the World so far distant from the Continent or main Land as this. It is about sixteen Leagues in Compass, in the _Ethiopic_ Sea; in 16 Degrees of South Latitude; about 1500 Miles from the _Cape of Good Hope_; 360 from _Angola_ in _Africa_; and 510 from _Brasile_ in _America_. It lies high out of the Water; and surrounded on the Sea-coasts with steep Rocks, having within many Cliffs, Mountains and Vallies, of which one is named _Church-Valley_, where behind a small Church they climb up to the Mountains. To the South is _Apple-Dale_, so called from the abundance of Oranges, Lemons, and Pomegranates enough to furnish five or six Ships. On the West-side of the Church, Ships have good Anchorage close under the Shore, to prevent the Winds which blow fiercely from the adjacent high Mountains.

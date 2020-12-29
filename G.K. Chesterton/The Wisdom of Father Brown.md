@@ -1,3 +1,10 @@
+# Title: The Wisdom of Father Brown
+
+## Author: G.K. Chesterton
+
+## Year: 1914
+
+-------
 
 ##  ONE -- The Absence of Mr Glass
 

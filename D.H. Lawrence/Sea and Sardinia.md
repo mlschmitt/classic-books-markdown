@@ -1,3 +1,10 @@
+# Title: Sea and Sardinia
+
+## Author: D.H. Lawrence
+
+## Year: 1921
+
+-------
 
 ## I - AS FAR AS PALERMO.
 

@@ -1,3 +1,10 @@
+# Title: Crime and Punishment
+
+## Author: Fyodor Dostoyevsky
+
+## Year: 1866
+
+-------
 _Translated by Constance Garnett_
 
 ##  PART I 

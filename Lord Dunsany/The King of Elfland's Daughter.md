@@ -1,3 +1,10 @@
+# Title: The King of Elfland's Daughter
+
+## Author: Lord Dunsany
+
+## Year: 1924
+
+-------
 
 ## CHAPTER I
 

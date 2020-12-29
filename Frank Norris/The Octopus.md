@@ -1,3 +1,10 @@
+# Title: The Octopus
+
+## Author: Frank Norris
+
+## Year: 1901
+
+-------
 
 #  BOOK 1
 

@@ -1,3 +1,10 @@
+# Title: The Monkey's Paw
+
+## Author: W. W. Jacobs
+
+## Year: 1902
+
+-------
 
 ## I.
 

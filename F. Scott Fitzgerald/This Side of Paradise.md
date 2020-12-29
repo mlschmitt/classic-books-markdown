@@ -1,3 +1,10 @@
+# Title: This Side of Paradise
+
+## Author: F. Scott Fitzgerald
+
+## Year: 1920
+
+-------
 *... Well this side of Paradise!...
 There's little comfort in the wise.*
 Rupert Brooke.

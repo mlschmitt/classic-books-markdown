@@ -1,3 +1,10 @@
+# Title: The Revolt of the Angels
+
+## Author: Anatole France
+
+## Year: 1914
+
+-------
 _Translated by Wilfrid Jackson_
 
 

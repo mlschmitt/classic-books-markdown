@@ -1,3 +1,10 @@
+# Title: The Narrative of Sojourner Truth
+
+## Author: Sojourner Truth
+
+## Year: 1850
+
+-------
 
 ## HER BIRTH AND PARENTAGE.
 

@@ -1,3 +1,10 @@
+# Title: Southern Horrors: Lynch Law in All Its Phases
+
+## Author: Ida B. Wells
+
+## Year: 1892
+
+-------
 
 ## PREFACE
 

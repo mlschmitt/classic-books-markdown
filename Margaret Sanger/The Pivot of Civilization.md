@@ -1,3 +1,10 @@
+# Title: The Pivot of Civilization
+
+## Author: Margaret Sanger
+
+## Year: 1922
+
+-------
 
 ##  CHAPTER I: A New Truth Emerges 
     

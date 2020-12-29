@@ -1,3 +1,10 @@
+# Title: The Stockbroker's Clerk
+
+## Author: Arthur Conan Doyle
+
+## Year: 1893
+
+-------
 Shortly after my marriage I had bought a connection in the Paddington district. Old Mr. Farquhar, from whom I purchased it, had at one time an excellent general practice; but his age, and an affliction of the nature of St. Vitus's dance from which he suffered, had very much thinned it. The public not unnaturally goes on the principle that he who would heal others must himself be whole, and looks askance at the curative powers of the man whose own case is beyond the reach of his drugs. Thus as my predecessor weakened his practice declined, until when I purchased it from him it had sunk from twelve hundred to little more than three hundred a year. I had confidence, however, in my own youth and energy, and was convinced that in a very few years the concern would be as flourishing as ever.
 
 For three months after taking over the practice I was kept very closely at work, and saw little of my friend Sherlock Holmes, for I was too busy to visit Baker Street, and he seldom went anywhere himself save upon professional business. I was surprised, therefore, when, one morning in June, as I sat reading the British Medical Journal after breakfast, I heard a ring at the bell, followed by the high, somewhat strident tones of my old companion's voice.

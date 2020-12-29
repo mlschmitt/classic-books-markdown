@@ -1,3 +1,10 @@
+# Title: The Mysterious Affair at Styles
+
+## Author: Agatha Christie
+
+## Year: 1920
+
+-------
 
 ##  CHAPTER I. I GO TO STYLES 
 

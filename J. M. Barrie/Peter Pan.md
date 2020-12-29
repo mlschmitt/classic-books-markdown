@@ -1,3 +1,10 @@
+# Title: Peter Pan
+
+## Author: J. M. Barrie
+
+## Year: 1911
+
+-------
 
 ## CHAPTER 1 - PETER BREAKS THROUGH 
 

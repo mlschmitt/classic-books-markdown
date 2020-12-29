@@ -1,3 +1,10 @@
+# Title: The Return of the Soldier
+
+## Author: Rebecca West
+
+## Year: 1918
+
+-------
 
 ### CHAPTER I
 

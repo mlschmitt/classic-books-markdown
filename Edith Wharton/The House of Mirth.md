@@ -1,3 +1,10 @@
+# Title: The House of Mirth
+
+## Author: Edith Wharton
+
+## Year: 1905
+
+-------
 
 ##  BOOK ONE
 

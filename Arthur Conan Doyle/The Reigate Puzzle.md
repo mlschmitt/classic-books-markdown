@@ -1,3 +1,10 @@
+# Title: The Reigate Puzzle
+
+## Author: Arthur Conan Doyle
+
+## Year: 1893
+
+-------
 It was some time before the health of my friend Mr. Sherlock Holmes recovered from the strain caused by his immense exertions in the spring of '87. The whole question of the Netherland-Sumatra Company and of the colossal schemes of Baron Maupertuis are too recent in the minds of the public, and are too intimately concerned with politics and finance to be fitting subjects for this series of sketches. They led, however, in an indirect fashion to a singular and complex problem which gave my friend an opportunity of demonstrating the value of a fresh weapon among the many with which he waged his life-long battle against crime.
 
 On referring to my notes I see that it was upon the 14th of April that I received a telegram from Lyons which informed me that Holmes was lying ill in the Hotel Dulong. Within twenty-four hours I was in his sick-room, and was relieved to find that there was nothing formidable in his symptoms. Even his iron constitution, however, had broken down under the strain of an investigation which had extended over two months, during which period he had never worked less than fifteen hours a day, and had more than once, as he assured me, kept to his task for five days at a stretch. Even the triumphant issue of his labors could not save him from reaction after so terrible an exertion, and at a time when Europe was ringing with his name and when his room was literally ankle-deep with congratulatory telegrams I found him a prey to the blackest depression. Even the knowledge that he had succeeded where the police of three countries had failed, and that he had outmanoeuvred at every point the most accomplished swindler in Europe, was insufficient to rouse him from his nervous prostration.

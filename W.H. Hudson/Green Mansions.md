@@ -1,3 +1,10 @@
+# Title: Green Mansions
+
+## Author: W.H. Hudson
+
+## Year: 1904
+
+-------
 
 ##  PROLOGUE
 

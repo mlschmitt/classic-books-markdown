@@ -1,3 +1,10 @@
+# Title: The Last of the Mohicans
+
+## Author: James Fenimore Cooper
+
+## Year: 1826
+
+-------
 
 ##  CHAPTER 1 
     

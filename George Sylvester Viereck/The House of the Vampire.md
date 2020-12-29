@@ -1,3 +1,10 @@
+# Title: The House of the Vampire
+
+## Author: George Sylvester Viereck
+
+## Year: 1907
+
+-------
 
 ### I
 

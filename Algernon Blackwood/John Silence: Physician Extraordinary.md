@@ -1,3 +1,10 @@
+# Title: John Silence: Physician Extraordinary
+
+## Author: Algernon Blackwood
+
+## Year: 1908
+
+-------
 
 ## CASE I: A PSYCHICAL INVASION
 

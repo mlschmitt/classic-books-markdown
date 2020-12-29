@@ -1,3 +1,10 @@
+# Title: The House on the Borderland
+
+## Author: William Hope Hodgson
+
+## Year: 1908
+
+-------
 
 ## I - THE FINDING OF THE MANUSCRIPT
 

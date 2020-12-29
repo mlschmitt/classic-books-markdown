@@ -1,3 +1,10 @@
+# Title: The Trial
+
+## Author: Franz Kafka
+
+## Year: 1925
+
+-------
 
 ## Chapter One - Arrest - Conversation with Mrs. Grubach - Then Miss Bürstner
 

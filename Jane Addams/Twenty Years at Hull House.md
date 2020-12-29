@@ -1,3 +1,10 @@
+# Title: Twenty Years at Hull House
+
+## Author: Jane Addams
+
+## Year: 1910
+
+-------
 
 ## CHAPTER I - EARLIEST IMPRESSIONS
 

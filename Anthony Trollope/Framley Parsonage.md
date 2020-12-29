@@ -1,3 +1,10 @@
+# Title: Framley Parsonage
+
+## Author: Anthony Trollope
+
+## Year: 1860
+
+-------
 
 ### CHAPTER I. - "OMNES OMNIA BONA DICERE."
 

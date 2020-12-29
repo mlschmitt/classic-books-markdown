@@ -1,3 +1,10 @@
+# Title: The Ambassadors
+
+## Author: Henry James
+
+## Year: 1903
+
+-------
 
 ##  Volume I
 

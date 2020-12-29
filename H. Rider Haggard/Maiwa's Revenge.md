@@ -1,3 +1,10 @@
+# Title: Maiwa's Revenge
+
+## Author: H. Rider Haggard
+
+## Year: 1888
+
+-------
 
 ##  PREFACE
 

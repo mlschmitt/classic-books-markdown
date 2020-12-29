@@ -1,3 +1,10 @@
+# Title: Treasure Island
+
+## Author: Robert Louis Stevenson
+
+## Year: 1881
+
+-------
 
 ##  PART ONE--The Old Buccaneer 
 

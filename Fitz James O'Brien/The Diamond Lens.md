@@ -1,3 +1,10 @@
+# Title: The Diamond Lens
+
+## Author: Fitz James O'Brien
+
+## Year: 1858
+
+-------
 
 ##  I
 

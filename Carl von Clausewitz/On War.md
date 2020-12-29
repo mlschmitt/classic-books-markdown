@@ -1,3 +1,10 @@
+# Title: On War
+
+## Author: Carl von Clausewitz
+
+## Year: 1832
+
+-------
 _Translated by Colonel J.J. Graham_
 
 ### BOOK I. ON THE NATURE OF WAR

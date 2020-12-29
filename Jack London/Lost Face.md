@@ -1,3 +1,10 @@
+# Title: Lost Face
+
+## Author: Jack London
+
+## Year: 1910
+
+-------
 
 ## LOST FACE
 

@@ -1,3 +1,10 @@
+# Title: The Inmost Light
+
+## Author: Arthur Machen
+
+## Year: 1894
+
+-------
 
 ### I
 

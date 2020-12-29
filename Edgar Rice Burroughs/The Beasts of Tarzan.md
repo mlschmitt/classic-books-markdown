@@ -1,3 +1,10 @@
+# Title: The Beasts of Tarzan
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1914
+
+-------
 
 ## Chapter 1 - Kidnapped
 

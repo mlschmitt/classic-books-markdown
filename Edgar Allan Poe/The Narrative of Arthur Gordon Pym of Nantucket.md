@@ -1,3 +1,10 @@
+# Title: The Narrative of Arthur Gordon Pym of Nantucket
+
+## Author: Edgar Allan Poe
+
+## Year: 1838
+
+-------
 
 ### PREFACE.
 

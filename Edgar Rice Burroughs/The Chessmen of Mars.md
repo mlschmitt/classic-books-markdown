@@ -1,3 +1,10 @@
+# Title: The Chessmen of Mars
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1922
+
+-------
 
 ### PRELUDE - JOHN CARTER COMES TO EARTH
 

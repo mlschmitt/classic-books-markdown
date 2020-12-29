@@ -1,3 +1,10 @@
+# Title: The Great God Pan
+
+## Author: Arthur Machen
+
+## Year: 1894
+
+-------
 
 ###  I - THE EXPERIMENT 
 

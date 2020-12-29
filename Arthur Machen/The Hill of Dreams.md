@@ -1,3 +1,10 @@
+# Title: The Hill of Dreams
+
+## Author: Arthur Machen
+
+## Year: 1907
+
+-------
 
 ### I
 

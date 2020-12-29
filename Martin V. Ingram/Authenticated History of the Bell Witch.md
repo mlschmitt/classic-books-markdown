@@ -1,3 +1,10 @@
+# Title: Authenticated History of the Bell Witch
+
+## Author: Martin V. Ingram
+
+## Year: 1894
+
+-------
 
 ## Preface
 

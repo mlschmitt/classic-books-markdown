@@ -1,3 +1,10 @@
+# Title: The Imitation of Christ
+
+## Author: Thomas à Kempis
+
+## Year: 1418
+
+-------
 _Translated by Rev. William Benham_
 
 

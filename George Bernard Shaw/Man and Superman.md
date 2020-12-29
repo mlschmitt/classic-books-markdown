@@ -1,3 +1,10 @@
+# Title: Man and Superman
+
+## Author: George Bernard Shaw
+
+## Year: 1905
+
+-------
 
 ##  ACT I
 

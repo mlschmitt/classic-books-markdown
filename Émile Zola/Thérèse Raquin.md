@@ -1,3 +1,10 @@
+# Title: Thérèse Raquin
+
+## Author: Émile Zola
+
+## Year: 1867
+
+-------
 _Translated by Edward Vizetelly_
 
 ##  CHAPTER I 

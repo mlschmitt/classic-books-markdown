@@ -1,3 +1,10 @@
+# Title: At the Earth's Core
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1914
+
+-------
 
 ###  PROLOGUE
 

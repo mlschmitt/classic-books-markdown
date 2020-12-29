@@ -1,3 +1,10 @@
+# Title: The Other Wise Man
+
+## Author: Henry van Dyke
+
+## Year: 1895
+
+-------
 _Who seeks for heaven alone to save his soul,_
 _May keep the path, but will not reach the goal;_
 _While he who walks in love may wander far,_

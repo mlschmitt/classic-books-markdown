@@ -1,3 +1,10 @@
+# Title: The Secret Adversary
+
+## Author: Agatha Christie
+
+## Year: 1922
+
+-------
 
 ##  PROLOGUE 
 

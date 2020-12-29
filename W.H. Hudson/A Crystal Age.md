@@ -1,3 +1,10 @@
+# Title: A Crystal Age
+
+## Author: W.H. Hudson
+
+## Year: 1887
+
+-------
 
 ##  Chapter 1 
 

@@ -1,3 +1,10 @@
+# Title: Thuvia, Maid of Mars
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1916
+
+-------
 
 ###  CHAPTER I - CARTHORIS AND THUVIA
 

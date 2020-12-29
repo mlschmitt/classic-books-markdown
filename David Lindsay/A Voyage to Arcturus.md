@@ -1,3 +1,10 @@
+# Title: A Voyage to Arcturus
+
+## Author: David Lindsay
+
+## Year: 1920
+
+-------
 
 ##  Chapter 1 - THE SEANCE 
 

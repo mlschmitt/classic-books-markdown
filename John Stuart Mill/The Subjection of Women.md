@@ -1,3 +1,10 @@
+# Title: The Subjection of Women
+
+## Author: John Stuart Mill
+
+## Year: 1869
+
+-------
 
 ##  CHAPTER I. 
 

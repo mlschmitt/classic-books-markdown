@@ -1,3 +1,10 @@
+# Title: The Shadowy Third
+
+## Author: Ellen Glasgow
+
+## Year: 1923
+
+-------
 
 ### THE SHADOWY THIRD
 

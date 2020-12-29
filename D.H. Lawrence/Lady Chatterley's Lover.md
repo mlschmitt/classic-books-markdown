@@ -1,3 +1,10 @@
+# Title: Lady Chatterley's Lover
+
+## Author: D.H. Lawrence
+
+## Year: 1928
+
+-------
 
 ## Chapter 1
 

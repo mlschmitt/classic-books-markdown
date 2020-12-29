@@ -1,3 +1,10 @@
+# Title: The Black Star Passes
+
+## Author: John W. Campbell
+
+## Year: 1953
+
+-------
 
 ## Book I - Piracy Preferred
 

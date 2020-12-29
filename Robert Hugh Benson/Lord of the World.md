@@ -1,3 +1,10 @@
+# Title: Lord of the World
+
+## Author: Robert Hugh Benson
+
+## Year: 1908
+
+-------
 
 ### PREFACE
 

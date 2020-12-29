@@ -1,3 +1,10 @@
+# Title: Pickman's Model
+
+## Author: H.P. Lovecraft
+
+## Year: 1926
+
+-------
 You needn't think I'm crazy, Eliot—plenty of others have queerer prejudices than this. Why don't you laugh at Oliver's grandfather, who won't ride in a motor? If I don't like that damned subway, it's my own business; and we got here more quickly anyhow in the taxi. We'd have had to walk up the hill from Park Street if we'd taken the car.
 
 I know I'm more nervous than I was when you saw me last year, but you don't need to hold a clinic over it. There's plenty of reason, God knows, and I fancy I'm lucky to be sane at all. Why the third degree? You didn't use to be so inquisitive.

@@ -1,3 +1,10 @@
+# Title: Beowulf
+
+## Author: Anonymous
+
+## Year: 700
+
+-------
 
 ## I. THE LIFE AND DEATH OF SCYLD.
 

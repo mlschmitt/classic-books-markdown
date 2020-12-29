@@ -1,3 +1,10 @@
+# Title: The Epic of Gilgamesh
+
+## Author: Various
+
+## Year: 1920
+
+-------
 
 ## An Old Babylonian Version of the Gilgamesh Epic
 

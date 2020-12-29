@@ -1,3 +1,10 @@
+# Title: The Beautiful and Damned
+
+## Author: F. Scott Fitzgerald
+
+## Year: 1922
+
+-------
 
 ### CHAPTER I - ANTHONY PATCH
 

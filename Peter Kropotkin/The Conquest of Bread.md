@@ -1,3 +1,10 @@
+# Title: The Conquest of Bread
+
+## Author: Peter Kropotkin
+
+## Year: 1892
+
+-------
 
 ## CHAPTER I - OUR RICHES
 

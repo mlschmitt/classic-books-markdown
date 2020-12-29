@@ -1,3 +1,10 @@
+# Title: The Importance of Being Earnest
+
+## Author: Oscar Wilde
+
+## Year: 1895
+
+-------
 
 ## FIRST ACT
 

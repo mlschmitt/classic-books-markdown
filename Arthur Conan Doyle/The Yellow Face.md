@@ -1,3 +1,10 @@
+# Title: The Yellow Face
+
+## Author: Arthur Conan Doyle
+
+## Year: 1893
+
+-------
 [In publishing these short sketches based upon the numerous cases in which my companion's singular gifts have made us the listeners to, and eventually the actors in, some strange drama, it is only natural that I should dwell rather upon his successes than upon his failures. And this not so much for the sake of his reputation--for, indeed, it was when he was at his wits' end that his energy and his versatility were most admirable--but because where he failed it happened too often that no one else succeeded, and that the tale was left forever without a conclusion. Now and again, however, it chanced that even when he erred, the truth was still discovered. I have noted of some half-dozen cases of the kind; the Adventure of the Musgrave Ritual and that which I am about to recount are the two which present the strongest features of interest.]
 
 Sherlock Holmes was a man who seldom took exercise for exercise's sake. Few men were capable of greater muscular effort, and he was undoubtedly one of the finest boxers of his weight that I have ever seen; but he looked upon aimless bodily exertion as a waste of energy, and he seldom bestirred himself save when there was some professional object to be served. Then he was absolutely untiring and indefatigable. That he should have kept himself in training under such circumstances is remarkable, but his diet was usually of the sparest, and his habits were simple to the verge of austerity. Save for the occasional use of cocaine, he had no vices, and he only turned to the drug as a protest against the monotony of existence when cases were scanty and the papers uninteresting.

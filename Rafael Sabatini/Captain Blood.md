@@ -1,3 +1,10 @@
+# Title: Captain Blood
+
+## Author: Rafael Sabatini
+
+## Year: 1922
+
+-------
 
 ## CHAPTER I. THE MESSENGER
 

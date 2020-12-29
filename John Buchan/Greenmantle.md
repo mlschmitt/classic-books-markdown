@@ -1,3 +1,10 @@
+# Title: Greenmantle
+
+## Author: John Buchan
+
+## Year: 1916
+
+-------
 
 ### CHAPTER ONE - A Mission is Proposed
 

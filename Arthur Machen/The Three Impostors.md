@@ -1,3 +1,10 @@
+# Title: The Three Impostors
+
+## Author: Arthur Machen
+
+## Year: 1895
+
+-------
 
 ### PROLOGUE.
 

@@ -1,3 +1,10 @@
+# Title: Wives and Daughters
+
+## Author: Elizabeth Gaskell
+
+## Year: 1864
+
+-------
 
 ## CHAPTER I - THE DAWN OF A GALA DAY.
 

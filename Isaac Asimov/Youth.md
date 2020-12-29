@@ -1,3 +1,10 @@
+# Title: Youth
+
+## Author: Isaac Asimov
+
+## Year: 1952
+
+-------
 There was a spatter of pebbles against the window and the youngster stirred in his sleep. Another, and he was awake.
 
 He sat up stiffly in bed. Seconds passed while he interpreted his strange surroundings. He wasn't in his own home, of course. This was out in the country. It was colder than it should be and there was green at the window.

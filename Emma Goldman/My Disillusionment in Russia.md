@@ -1,3 +1,10 @@
+# Title: My Disillusionment in Russia
+
+## Author: Emma Goldman
+
+## Year: 1923
+
+-------
 
 ## Chapter 1: Deportation To Russia
 

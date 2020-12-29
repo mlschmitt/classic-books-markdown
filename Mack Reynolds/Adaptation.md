@@ -1,3 +1,10 @@
+# Title: Adaptation
+
+## Author: Mack Reynolds
+
+## Year: 1960
+
+-------
 
 ### Foreword
 

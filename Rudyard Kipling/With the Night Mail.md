@@ -1,3 +1,10 @@
+# Title: With the Night Mail
+
+## Author: Rudyard Kipling
+
+## Year: 1905
+
+-------
 At nine o'clock of a gusty winter night I stood on the lower stages of one of the G. P. O. outward mail towers. My purpose was a run to Quebec in "Postal Packet 162 or such other as may be appointed"; and the Postmaster-General himself countersigned the order. This talisman opened all doors, even those in the despatching-caisson at the foot of the tower, where they were delivering the sorted Continental mail. The bags lay packed close as herrings in the long gray under-bodies which our G. P. O. still calls "coaches." Five such coaches were filled as I watched, and were shot up the guides to be locked on to their waiting packets three hundred feet nearer the stars.
 
 From the despatching-caisson I was conducted by a courteous and wonderfully learned official--Mr. L. L. Geary, Second Despatcher of the Western Route--to the Captains' Room (this wakes an echo of old romance), where the mail captains come on for their turn of duty. He introduces me to the Captain of "162"--Captain Purnall, and his relief, Captain Hodgson. The one is small and dark; the other large and red; but each has the brooding sheathed glance characteristic of eagles and aeronauts. You can see it in the pictures of our racing professionals, from L. V. Rautsch to little Ada Warrleigh--that fathomless abstraction of eyes habitually turned through naked space.

@@ -1,3 +1,10 @@
+# Title: Siddhartha
+
+## Author: Herman Hesse
+
+## Year: 1922
+
+-------
 
 ##  FIRST PART
 

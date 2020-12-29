@@ -1,3 +1,10 @@
+# Title: White Nights
+
+## Author: Fyodor Dostoyevsky
+
+## Year: 1848
+
+-------
 _Translated by Constance Garnett_
 
 *A sentimental story from the diary of a dreamer*

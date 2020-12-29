@@ -1,3 +1,10 @@
+# Title: Surrealist Manifesto
+
+## Author: André Breton
+
+## Year: 1924
+
+-------
 So strong is the belief in life, in what is most fragile in life - _real_ life, I mean - that in the end this belief is lost. Man, that inveterate dreamer, daily more discontent with his destiny, has trouble assessing the objects he has been led to use, objects that his nonchalance has brought his way, or that he has earned through his own efforts, almost always through his own efforts, for he has agreed to work, at least he has not refused to try his luck (or what he calls his luck!). At this point he feels extremely modest: he knows what women he has had, what silly affairs he has been involved in; he is unimpressed by his wealth or his poverty, in this respect he is still a newborn babe and, as for the approval of his conscience, I confess that he does very nicely without it. If he still retains a certain lucidity, all he can do is turn back toward his childhood which, however his guides and mentors may have botched it, still strikes him as somehow charming. There, the absence of any known restrictions allows him the perspective of several lives lived at once; this illusion becomes firmly rooted within him; now he is only interested in the fleeting, the extreme facility of everything. Children set off each day without a worry in the world. Everything is near at hand, the worst material conditions are fine. The woods are white or black, one will never sleep.
 
 But it is true that we would not dare venture so far, it is not merely a question of distance. Threat is piled upon threat, one yields, abandons a portion of the terrain to be conquered. This imagination which knows no bounds is henceforth allowed to be exercised only in strict accordance with the laws of an arbitrary utility; it is incapable of assuming this inferior role for very long and, in the vicinity of the twentieth year, generally prefers to abandon man to his lusterless fate.

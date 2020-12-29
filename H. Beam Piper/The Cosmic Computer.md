@@ -1,3 +1,10 @@
+# Title: The Cosmic Computer
+
+## Author: H. Beam Piper
+
+## Year: 1963
+
+-------
 
 ## I
 

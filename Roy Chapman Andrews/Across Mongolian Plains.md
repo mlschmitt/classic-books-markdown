@@ -1,3 +1,10 @@
+# Title: Across Mongolian Plains
+
+## Author: Roy Chapman Andrews
+
+## Year: 1921
+
+-------
 
 ### CHAPTER I - ENTERING THE LAND OF MYSTERY
 

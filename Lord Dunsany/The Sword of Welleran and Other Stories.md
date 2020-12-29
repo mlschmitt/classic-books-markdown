@@ -1,3 +1,10 @@
+# Title: The Sword of Welleran and Other Stories
+
+## Author: Lord Dunsany
+
+## Year: 1908
+
+-------
 
 ### The Sword of Welleran
 

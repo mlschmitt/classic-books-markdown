@@ -1,3 +1,10 @@
+# Title: The Leavenworth Case
+
+## Author: Anna Katharine Green
+
+## Year: 1878
+
+-------
 
 ##  BOOK I. THE PROBLEM
 

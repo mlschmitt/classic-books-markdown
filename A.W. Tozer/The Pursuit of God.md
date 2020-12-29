@@ -1,3 +1,10 @@
+# Title: The Pursuit of God
+
+## Author: A.W. Tozer
+
+## Year: 1948
+
+-------
 
 ## I  _Following Hard after God_
 

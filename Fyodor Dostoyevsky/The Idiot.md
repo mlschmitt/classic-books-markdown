@@ -1,3 +1,10 @@
+# Title: The Idiot
+
+## Author: Fyodor Dostoyevsky
+
+## Year: 1869
+
+-------
 _Translated by Eva Martin_
 
 ##  PART I 

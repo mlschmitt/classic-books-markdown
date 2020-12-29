@@ -1,3 +1,10 @@
+# Title: Colonel Chabert
+
+## Author: Honoré de Balzac
+
+## Year: 1829
+
+-------
 "Hullo! There is that old Box-coat again!" 
 
 This exclamation was made by a lawyer's clerk of the class called in French offices a gutter-jumper--a messenger in fact--who at this moment was eating a piece of dry bread with a hearty appetite. He pulled off a morsel of crumb to make into a bullet, and fired it gleefully through the open pane of the window against which he was leaning. The pellet, well aimed, rebounded almost as high as the window, after hitting the hat of a stranger who was crossing the courtyard of a house in the Rue Vivienne, where dwelt Maitre Derville, attorney-at-law. 

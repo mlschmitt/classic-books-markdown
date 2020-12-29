@@ -1,3 +1,10 @@
+# Title: Jane Eyre
+
+## Author: Charlotte Bronte
+
+## Year: 1847
+
+-------
 
 ## CHAPTER 1
 

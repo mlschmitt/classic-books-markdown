@@ -1,3 +1,10 @@
+# Title: Gunman's Reckoning
+
+## Author: Max Brand
+
+## Year: 1921
+
+-------
 
 ## 1
 

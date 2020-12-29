@@ -1,3 +1,10 @@
+# Title: The Iliad
+
+## Author: Homer
+
+## Year: 760 BC
+
+-------
 _Translated by Alexander Pope_
 
 ###  BOOK I

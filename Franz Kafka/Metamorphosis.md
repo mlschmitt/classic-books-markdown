@@ -1,3 +1,10 @@
+# Title: Metamorphosis
+
+## Author: Franz Kafka
+
+## Year: 1915
+
+-------
 _Translated by David Wyllie._
 
 ## Part 1

@@ -1,3 +1,10 @@
+# Title: The Mutiny of the Elsinore
+
+## Author: Jack London
+
+## Year: 1914
+
+-------
 
 ## CHAPTER I
 

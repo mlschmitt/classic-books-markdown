@@ -1,3 +1,10 @@
+# Title: The Gods of Mars
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1913
+
+-------
 
 ###  CHAPTER I - THE PLANT MEN
 

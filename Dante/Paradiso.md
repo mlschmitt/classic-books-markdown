@@ -1,3 +1,10 @@
+# Title: Paradiso
+
+## Author: Dante
+
+## Year: 1320
+
+-------
 _Translated by Rev. H.F. Cary, M.A._ 
 
 ##  CANTO I

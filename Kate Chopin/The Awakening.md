@@ -1,3 +1,10 @@
+# Title: The Awakening
+
+## Author: Kate Chopin
+
+## Year: 1899
+
+-------
 
 ##  I
 

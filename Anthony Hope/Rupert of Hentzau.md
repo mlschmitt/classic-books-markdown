@@ -1,3 +1,10 @@
+# Title: Rupert of Hentzau
+
+## Author: Anthony Hope
+
+## Year: 1898
+
+-------
 
 ##  CHAPTER I. THE QUEEN'S GOOD-BY
 

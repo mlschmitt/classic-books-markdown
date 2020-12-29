@@ -1,3 +1,10 @@
+# Title: The Challenge from Beyond
+
+## Author: Various
+
+## Year: 1935
+
+-------
 [C. L. Moore]
 
 George Campbell opened sleep-fogged eyes upon darkness and lay gazing out of the tent flap upon the pale August night for some minutes before he roused enough even to wonder what had wakened him. There was in the keen, clear air of these Canadian woods a soporific as potent as any drug. Campbell lay quiet for a moment, sinking slowly back into the delicious borderlands of sleep, conscious of an exquisite weariness, an unaccustomed sense of muscles well used, and relaxed now into perfect ease. These were vacation's most delightful moments, after all -- rest, after toil, in the clear, sweet forest night.

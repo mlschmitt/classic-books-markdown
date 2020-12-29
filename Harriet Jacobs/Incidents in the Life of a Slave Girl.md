@@ -1,3 +1,10 @@
+# Title: Incidents in the Life of a Slave Girl
+
+## Author: Harriet Jacobs
+
+## Year: 1861
+
+-------
 "Northerners know nothing at all about Slavery. They think it is perpetual bondage only. They have no conception of the depth of _degradation_ involved in that word, SLAVERY; if they had, they would never cease their efforts until so horrible a system was overthrown."
 
 A Woman Of North Carolina.

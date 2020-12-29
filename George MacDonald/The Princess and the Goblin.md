@@ -1,3 +1,10 @@
+# Title: The Princess and the Goblin
+
+## Author: George MacDonald
+
+## Year: 1872
+
+-------
 
 ###  CHAPTER 1 - Why the Princess Has a Story About Her 
 

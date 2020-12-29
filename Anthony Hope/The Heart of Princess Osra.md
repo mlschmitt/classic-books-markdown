@@ -1,3 +1,10 @@
+# Title: The Heart of Princess Osra
+
+## Author: Anthony Hope
+
+## Year: 1896
+
+-------
 
 ## CHAPTER I - The Happiness of Stephen the Smith.
 

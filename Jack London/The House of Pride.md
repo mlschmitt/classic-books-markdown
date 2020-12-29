@@ -1,3 +1,10 @@
+# Title: The House of Pride
+
+## Author: Jack London
+
+## Year: 1912
+
+-------
 
 ## THE HOUSE OF PRIDE
 

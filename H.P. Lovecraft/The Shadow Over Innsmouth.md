@@ -1,3 +1,10 @@
+# Title: The Shadow Over Innsmouth
+
+## Author: H.P. Lovecraft
+
+## Year: 1936
+
+-------
 
 ### Chapter I
 

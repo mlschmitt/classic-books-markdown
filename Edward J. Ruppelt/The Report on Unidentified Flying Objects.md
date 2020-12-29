@@ -1,3 +1,10 @@
+# Title: The Report on Unidentified Flying Objects
+
+## Author: Edward J. Ruppelt
+
+## Year: 1956
+
+-------
 
 ### CHAPTER ONE - Project Blue Book and the UFO Story
 

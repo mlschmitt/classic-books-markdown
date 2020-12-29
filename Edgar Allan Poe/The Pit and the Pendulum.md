@@ -1,3 +1,10 @@
+# Title: The Pit and the Pendulum
+
+## Author: Edgar Allan Poe
+
+## Year: 1842
+
+-------
 _Impia tortorum longos hic turba furores_
 _Sanguinis innocui, non satiata, aluit._
 _Sospite nunc patria, fracto nunc funeris antro,_

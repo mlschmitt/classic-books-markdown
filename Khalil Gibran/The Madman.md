@@ -1,3 +1,10 @@
+# Title: The Madman
+
+## Author: Khalil Gibran
+
+## Year: 1918
+
+-------
 You ask me how I became a madman. It happened thus: One day, long before many gods were born, I woke from a deep sleep and found all my masks were stolen﻿—the seven masks I have fashioned and worn in seven lives﻿—I ran maskless through the crowded streets shouting, "Thieves, thieves, the cursed thieves."
 
 Men and women laughed at me and some ran to their houses in fear of me.

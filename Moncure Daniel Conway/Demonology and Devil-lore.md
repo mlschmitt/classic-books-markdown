@@ -1,3 +1,10 @@
+# Title: Demonology and Devil-lore
+
+## Author: Moncure Daniel Conway
+
+## Year: 1879
+
+-------
 
 ## Preface.
 

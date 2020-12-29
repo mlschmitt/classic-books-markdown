@@ -1,3 +1,10 @@
+# Title: Three Hundred Years Hence
+
+## Author: Mary Griffith
+
+## Year: 1836
+
+-------
 
 # Chapter I.
 

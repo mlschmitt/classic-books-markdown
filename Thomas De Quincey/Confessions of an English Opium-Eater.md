@@ -1,3 +1,10 @@
+# Title: Confessions of an English Opium-Eater
+
+## Author: Thomas De Quincey
+
+## Year: 1821
+
+-------
 
 ## TO THE READER
 

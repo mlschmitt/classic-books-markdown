@@ -1,3 +1,10 @@
+# Title: The King in Yellow
+
+## Author: Robert W. Chambers
+
+## Year: 1895
+
+-------
 *Along the shore the cloud waves break,  
 The twin suns sink beneath the lake,  
 The shadows lengthen  

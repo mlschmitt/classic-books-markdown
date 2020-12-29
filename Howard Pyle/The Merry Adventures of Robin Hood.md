@@ -1,3 +1,10 @@
+# Title: The Merry Adventures of Robin Hood
+
+## Author: Howard Pyle
+
+## Year: 1883
+
+-------
 
 ##  How Robin Hood Came to Be an Outlaw 
 

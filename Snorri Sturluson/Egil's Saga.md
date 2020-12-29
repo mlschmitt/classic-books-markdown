@@ -1,3 +1,10 @@
+# Title: Egil's Saga
+
+## Author: Snorri Sturluson
+
+## Year: 1240
+
+-------
 _Translated by W.C. Green_
 
 ## Chapter 1 - Of Kveldulf and his sons.

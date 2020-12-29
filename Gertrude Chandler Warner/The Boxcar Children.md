@@ -1,3 +1,10 @@
+# Title: The Boxcar Children
+
+## Author: Gertrude Chandler Warner
+
+## Year: 1924
+
+-------
 
 ## THE FLIGHT
 

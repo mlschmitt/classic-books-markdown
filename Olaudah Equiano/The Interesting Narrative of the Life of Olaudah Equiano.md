@@ -1,3 +1,10 @@
+# Title: The Interesting Narrative of the Life of Olaudah Equiano
+
+## Author: Olaudah Equiano
+
+## Year: 1789
+
+-------
 To the Lords Spiritual and Temporal, and the Commons of the Parliament of Great Britain.
 
 _My Lords and Gentlemen_,

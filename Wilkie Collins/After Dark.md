@@ -1,3 +1,10 @@
+# Title: After Dark
+
+## Author: Wilkie Collins
+
+## Year: 1856
+
+-------
 
 ## LEAVES FROM LEAH'S DIARY.
 

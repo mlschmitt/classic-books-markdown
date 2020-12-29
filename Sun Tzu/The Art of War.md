@@ -1,3 +1,10 @@
+# Title: The Art of War
+
+## Author: Sun Tzu
+
+## Year: 500 BC
+
+-------
 _Translated by Lionel Giles_
 
 ### I. LAYING PLANS

@@ -1,3 +1,10 @@
+# Title: The Odyssey
+
+## Author: Homer
+
+## Year: 700 BC
+
+-------
 _Translated by Samuel Butler_
 
 ##  BOOK I

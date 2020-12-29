@@ -1,3 +1,10 @@
+# Title: Riders of the Purple Sage
+
+## Author: Zane Grey
+
+## Year: 1912
+
+-------
 
 ##  CHAPTER I. LASSITER
 

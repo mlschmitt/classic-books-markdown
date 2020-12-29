@@ -1,3 +1,10 @@
+# Title: The Book of Were-wolves
+
+## Author: Sabine Baring-Gould
+
+## Year: 1865
+
+-------
 
 ## CHAPTER I. INTRODUCTORY.
 

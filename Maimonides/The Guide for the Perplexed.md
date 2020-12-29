@@ -1,3 +1,10 @@
+# Title: The Guide for the Perplexed
+
+## Author: Maimonides
+
+## Year: 1190
+
+-------
 
 ## Part 1
 

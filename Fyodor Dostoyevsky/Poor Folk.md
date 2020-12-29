@@ -1,3 +1,10 @@
+# Title: Poor Folk
+
+## Author: Fyodor Dostoyevsky
+
+## Year: 1844
+
+-------
 _Translated by C. J. Hogarth_
 
 ##  April 8th

@@ -1,3 +1,10 @@
+# Title: Vanity Fair
+
+## Author: William Makepeace Thackeray
+
+## Year: 1847
+
+-------
 
 ### CHAPTER I - Chiswick Mall
 

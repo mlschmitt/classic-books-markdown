@@ -1,3 +1,10 @@
+# Title: Count Magnus
+
+## Author: M.R. James
+
+## Year: 1904
+
+-------
 By what means the papers out of which I have made a connected story came into my hands is the last point which the reader will learn from these pages. But it is necessary to prefix to my extracts from them a statement of the form in which I possess them.
 
 They consist, then, partly of a series of collections for a book of travels, such a volume as was a common product of the forties and fifties. Horace Marryat's Journal of a Residence in Jutland and the Danish Isles is a fair specimen of the class to which I allude. These books usually treated of some unknown district on the Continent. They were illustrated with woodcuts or steel plates. They gave details of hotel accommodation and of means of communication, such as we now expect to find in any well-regulated guide-book, and they dealt largely in reported conversations with intelligent foreigners, racy innkeepers, and garrulous peasants. In a word, they were chatty.

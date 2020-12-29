@@ -1,3 +1,10 @@
+# Title: Phantastes
+
+## Author: George MacDonald
+
+## Year: 1858
+
+-------
 
 ##  CHAPTER I 
 

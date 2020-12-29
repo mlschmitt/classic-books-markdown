@@ -1,3 +1,10 @@
+# Title: The Castle of Otranto
+
+## Author: Horace Walpole
+
+## Year: 1764
+
+-------
 
 ## CHAPTER I.
 

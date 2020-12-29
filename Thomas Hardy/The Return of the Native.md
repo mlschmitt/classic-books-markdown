@@ -1,3 +1,10 @@
+# Title: The Return of the Native
+
+## Author: Thomas Hardy
+
+## Year: 1878
+
+-------
 
 ##  BOOK ONE -- THE THREE WOMEN 
 

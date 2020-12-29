@@ -1,3 +1,10 @@
+# Title: Silas Marner
+
+## Author: George Eliot
+
+## Year: 1861
+
+-------
 
 ##  PART ONE 
 

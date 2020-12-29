@@ -1,3 +1,10 @@
+# Title: An Antarctic Mystery
+
+## Author: Jules Verne
+
+## Year: 1897
+
+-------
 
 #### CHAPTER I. THE KERGUELEN ISLANDS
 

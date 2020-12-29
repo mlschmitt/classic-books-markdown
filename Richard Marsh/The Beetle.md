@@ -1,3 +1,10 @@
+# Title: The Beetle
+
+## Author: Richard Marsh
+
+## Year: 1897
+
+-------
 
 ##  Book I: The House with the Open Window
 

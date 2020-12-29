@@ -1,3 +1,10 @@
+# Title: The Sign of the Four
+
+## Author: Arthur Conan Doyle
+
+## Year: 1890
+
+-------
 
 ###  Chapter I - The Science of Deduction 
 

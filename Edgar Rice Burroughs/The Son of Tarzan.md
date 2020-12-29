@@ -1,3 +1,10 @@
+# Title: The Son of Tarzan
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1915
+
+-------
 
 ###  Chapter 1
 

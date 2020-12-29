@@ -1,3 +1,10 @@
+# Title: Mathilda
+
+## Author: Mary Wollstonecraft Shelley
+
+## Year: 1820
+
+-------
 
 ## CHAP. I
 

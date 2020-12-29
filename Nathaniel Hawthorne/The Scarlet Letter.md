@@ -1,3 +1,10 @@
+# Title: The Scarlet Letter
+
+## Author: Nathaniel Hawthorne
+
+## Year: 1850
+
+-------
 
 ## THE CUSTOM-HOUSE
 

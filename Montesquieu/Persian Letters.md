@@ -1,3 +1,10 @@
+# Title: Persian Letters
+
+## Author: Montesquieu
+
+## Year: 1721
+
+-------
 _Translated by John Davidson._
 
 ## Letter 1

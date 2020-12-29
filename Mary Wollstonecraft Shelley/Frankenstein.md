@@ -1,3 +1,10 @@
+# Title: Frankenstein
+
+## Author: Mary Wollstonecraft Shelley
+
+## Year: 1818
+
+-------
 
 ## Letter 1
 

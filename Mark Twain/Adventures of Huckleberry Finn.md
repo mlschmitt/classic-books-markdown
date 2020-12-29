@@ -1,3 +1,10 @@
+# Title: Adventures of Huckleberry Finn
+
+## Author: Mark Twain
+
+## Year: 1884
+
+-------
 
 ## CHAPTER 1
 

@@ -1,3 +1,10 @@
+# Title: The Colour Out of Space
+
+## Author: H.P. Lovecraft
+
+## Year: 1927
+
+-------
 West of Arkham the hills rise wild, and there are valleys with deep woods that no axe has ever cut. There are dark narrow glens where the trees slope fantastically, and where thin brooklets trickle without ever having caught the glint of sunlight. On the gentle slopes there are farms, ancient and rocky, with squat, moss-coated cottages brooding eternally over old New England secrets in the lee of great ledges; but these are all vacant now, the wide chimneys crumbling and the shingled sides bulging perilously beneath low gambrel roofs.
 
 The old folk have gone away, and foreigners do not like to live there. French-Canadians have tried it, Italians have tried it, and the Poles have come and departed. It is not because of anything that can be seen or heard or handled, but because of something that is imagined. The place is not good for imagination, and does not bring restful dreams at night. It must be this which keeps the foreigners away, for old Ammi Pierce has never told them of anything he recalls from the strange days. Ammi, whose head has been a little queer for years, is the only one who still remains, or who ever talks of the strange days; and he dares to do this because his house is so near the open fields and the traveled roads around Arkham.

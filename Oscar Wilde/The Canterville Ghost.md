@@ -1,3 +1,10 @@
+# Title: The Canterville Ghost
+
+## Author: Oscar Wilde
+
+## Year: 1887
+
+-------
 
 ## I
 

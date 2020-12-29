@@ -1,3 +1,10 @@
+# Title: The Black Monk
+
+## Author: Anton Chekhov
+
+## Year: 1894
+
+-------
 _Translated by Constance Garnett_
 
 ### I

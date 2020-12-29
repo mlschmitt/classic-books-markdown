@@ -1,3 +1,10 @@
+# Title: Looking Backward
+
+## Author: Edward Bellamy
+
+## Year: 1888
+
+-------
 
 ###  Chapter 1
 

@@ -1,3 +1,10 @@
+# Title: The Insanity of Jones
+
+## Author: Algernon Blackwood
+
+## Year: 1907
+
+-------
 
 ### Chapter I
 

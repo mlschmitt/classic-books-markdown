@@ -1,3 +1,10 @@
+# Title: Antic Hay
+
+## Author: Aldous Huxley
+
+## Year: 1923
+
+-------
 My men like satyrs grazing on the lawns
 Shall with their goat-feet dance the Antic Hay
 

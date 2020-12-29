@@ -1,3 +1,10 @@
+# Title: The Mysteries of Udolpho
+
+## Author: Ann Radcliffe
+
+## Year: 1794
+
+-------
 
 ##  VOLUME 1 
 

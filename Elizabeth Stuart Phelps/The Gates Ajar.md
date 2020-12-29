@@ -1,3 +1,10 @@
+# Title: The Gates Ajar
+
+## Author: Elizabeth Stuart Phelps
+
+## Year: 1868
+
+-------
 
 ## I.
 

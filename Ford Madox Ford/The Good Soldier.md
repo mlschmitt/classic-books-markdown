@@ -1,3 +1,10 @@
+# Title: The Good Soldier
+
+## Author: Ford Madox Ford
+
+## Year: 1915
+
+-------
 
 ##  PART I
 

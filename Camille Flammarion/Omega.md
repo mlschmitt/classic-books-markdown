@@ -1,3 +1,10 @@
+# Title: Omega
+
+## Author: Camille Flammarion
+
+## Year: 1893
+
+-------
 _Translated by J. B. Walker._
 
 ## I

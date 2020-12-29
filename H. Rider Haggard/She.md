@@ -1,3 +1,10 @@
+# Title: She
+
+## Author: H. Rider Haggard
+
+## Year: 1887
+
+-------
 
 ##  INTRODUCTION
 

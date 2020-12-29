@@ -1,3 +1,10 @@
+# Title: The Sheik
+
+## Author: Edith Maude Hull
+
+## Year: 1919
+
+-------
 
 # CHAPTER I
 

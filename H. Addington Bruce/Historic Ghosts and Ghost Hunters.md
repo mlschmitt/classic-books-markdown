@@ -1,3 +1,10 @@
+# Title: Historic Ghosts and Ghost Hunters
+
+## Author: H. Addington Bruce
+
+## Year: 1908
+
+-------
 
 ## PREFACE
 

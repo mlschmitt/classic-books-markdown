@@ -1,3 +1,10 @@
+# Title: The Pit
+
+## Author: Frank Norris
+
+## Year: 1903
+
+-------
 
 ###  I
 

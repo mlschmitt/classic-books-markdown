@@ -1,3 +1,10 @@
+# Title: The Poison Belt
+
+## Author: Arthur Conan Doyle
+
+## Year: 1913
+
+-------
 
 ###  Chapter I -  THE BLURRING OF LINES 
 

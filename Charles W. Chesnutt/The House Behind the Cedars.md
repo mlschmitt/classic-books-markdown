@@ -1,3 +1,10 @@
+# Title: The House Behind the Cedars
+
+## Author: Charles W. Chesnutt
+
+## Year: 1900
+
+-------
 
 ### I - A STRANGER FROM SOUTH CAROLINA
 

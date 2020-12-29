@@ -1,3 +1,10 @@
+# Title: The Worst Journey in the World
+
+## Author: Apsley Cherry-Garrard
+
+## Year: 1922
+
+-------
 This volume is a narrative of Scott's Last Expedition from its departure from England in 1910 to its return to New Zealand in 1913.
 
 It does not, however, include the story of subsidiary parties except where their adventures touch the history of the Main Party.

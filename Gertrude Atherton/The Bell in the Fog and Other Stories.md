@@ -1,3 +1,10 @@
+# Title: The Bell in the Fog and Other Stories
+
+## Author: Gertrude Atherton
+
+## Year: 1905
+
+-------
 
 ## The Bell in the Fog
 

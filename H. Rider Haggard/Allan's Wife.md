@@ -1,3 +1,10 @@
+# Title: Allan's Wife
+
+## Author: H. Rider Haggard
+
+## Year: 1889
+
+-------
 
 ##  CHAPTER I - EARLY DAYS
 

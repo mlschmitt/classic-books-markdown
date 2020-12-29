@@ -1,3 +1,10 @@
+# Title: Philosophical Dictionary
+
+## Author: Voltaire
+
+## Year: 1764
+
+-------
 
 ## _PREFACE_
 

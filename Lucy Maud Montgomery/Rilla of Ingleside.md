@@ -1,3 +1,10 @@
+# Title: Rilla of Ingleside
+
+## Author: Lucy Maud Montgomery
+
+## Year: 1921
+
+-------
 
 ### CHAPTER I - GLEN "NOTES" AND OTHER MATTERS
 

@@ -1,3 +1,10 @@
+# Title: After London
+
+## Author: Richard Jefferies
+
+## Year: 1885
+
+-------
 
 ## Part I - The Relapse into Barbarism
 

@@ -1,3 +1,10 @@
+# Title: The Taming of the Shrew
+
+## Author: William Shakespeare
+
+## Year: 1590
+
+-------
 
 ### SCENE I. Before an alehouse on a heath.
 

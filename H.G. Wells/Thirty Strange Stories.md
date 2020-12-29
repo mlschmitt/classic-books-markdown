@@ -1,3 +1,10 @@
+# Title: Thirty Strange Stories
+
+## Author: H.G. Wells
+
+## Year: 1897
+
+-------
 
 ## THE STRANGE ORCHID
 

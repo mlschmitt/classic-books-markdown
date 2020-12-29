@@ -1,3 +1,10 @@
+# Title: An Enemy of the People
+
+## Author: Henrik Ibsen
+
+## Year: 1883
+
+-------
 
 ###  Translated by R. Farquharson Sharp
 

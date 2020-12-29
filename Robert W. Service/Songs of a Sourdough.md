@@ -1,3 +1,10 @@
+# Title: Songs of a Sourdough
+
+## Author: Robert W. Service
+
+## Year: 1907
+
+-------
 
 ## The Law of the Yukon
 

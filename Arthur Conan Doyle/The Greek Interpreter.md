@@ -1,3 +1,10 @@
+# Title: The Greek Interpreter
+
+## Author: Arthur Conan Doyle
+
+## Year: 1893
+
+-------
 During my long and intimate acquaintance with Mr. Sherlock Holmes I had never heard him refer to his relations, and hardly ever to his own early life. This reticence upon his part had increased the somewhat inhuman effect which he produced upon me, until sometimes I found myself regarding him as an isolated phenomenon, a brain without a heart, as deficient in human sympathy as he was pre-eminent in intelligence. His aversion to women and his disinclination to form new friendships were both typical of his unemotional character, but not more so than his complete suppression of every reference to his own people. I had come to believe that he was an orphan with no relatives living, but one day, to my very great surprise, he began to talk to me about his brother.
 
 It was after tea on a summer evening, and the conversation, which had roamed in a desultory, spasmodic fashion from golf clubs to the causes of the change in the obliquity of the ecliptic, came round at last to the question of atavism and hereditary aptitudes. The point under discussion was, how far any singular gift in an individual was due to his ancestry and how far to his own early training.

@@ -1,3 +1,10 @@
+# Title: The Sea Wolf
+
+## Author: Jack London
+
+## Year: 1904
+
+-------
 
 ## CHAPTER I
 

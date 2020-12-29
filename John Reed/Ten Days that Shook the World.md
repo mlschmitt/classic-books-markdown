@@ -1,3 +1,10 @@
+# Title: Ten Days that Shook the World
+
+## Author: John Reed
+
+## Year: 1919
+
+-------
 
 ## Preface
 

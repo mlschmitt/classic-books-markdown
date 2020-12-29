@@ -1,3 +1,10 @@
+# Title: The White People
+
+## Author: Arthur Machen
+
+## Year: 1904
+
+-------
 
 ### PROLOGUE
 

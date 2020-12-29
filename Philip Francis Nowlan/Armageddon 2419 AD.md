@@ -1,3 +1,10 @@
+# Title: Armageddon 2419 AD
+
+## Author: Philip Francis Nowlan
+
+## Year: 1928
+
+-------
 
 ### Foreword
 

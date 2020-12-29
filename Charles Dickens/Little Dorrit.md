@@ -1,3 +1,10 @@
+# Title: Little Dorrit
+
+## Author: Charles Dickens
+
+## Year: 1855
+
+-------
 
 ##  BOOK THE FIRST: POVERTY
 

@@ -1,3 +1,10 @@
+# Title: The Mill on the Floss
+
+## Author: George Eliot
+
+## Year: 1860
+
+-------
 
 ## Book I - Boy and Girl
 

@@ -1,3 +1,10 @@
+# Title: The Last American
+
+## Author: John Ames Mitchell
+
+## Year: 1889
+
+-------
 _A Fragment_ from The Journal of KHAN-LI, _Prince of Dimph-Yoo-Chur and Admiral in the Persian Navy_
 
 

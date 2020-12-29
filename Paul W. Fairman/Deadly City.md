@@ -1,3 +1,10 @@
+# Title: Deadly City
+
+## Author: Paul W. Fairman
+
+## Year: 1953
+
+-------
 _You're all alone in a deserted city. You walk down an empty street, yearning for the sight of one living face --one moving figure. Then you see a man on a corner and you know your terror has only begun._
 
 He awoke slowly, like a man plodding knee-deep through the thick stuff of nightmares. There was no definite line between the dream-state and wakefulness. Only a dawning knowledge that he was finally conscious and would have to do something about it.

@@ -1,3 +1,10 @@
+# Title: The Wealth of Nations
+
+## Author: Adam Smith
+
+## Year: 1776
+
+-------
 
 ##  INTRODUCTION AND PLAN OF THE WORK. 
 

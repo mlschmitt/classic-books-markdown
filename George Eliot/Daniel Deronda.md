@@ -1,3 +1,10 @@
+# Title: Daniel Deronda
+
+## Author: George Eliot
+
+## Year: 1876
+
+-------
 Let thy chief terror be of thine own soul:
 There, 'mid the throng of hurrying desires
 That trample on the dead to seize their spoil,

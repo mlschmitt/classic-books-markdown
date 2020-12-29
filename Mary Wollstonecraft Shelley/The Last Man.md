@@ -1,3 +1,10 @@
+# Title: The Last Man
+
+## Author: Mary Wollstonecraft Shelley
+
+## Year: 1826
+
+-------
 
 ## VOL. I.
 

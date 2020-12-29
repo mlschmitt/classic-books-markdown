@@ -1,3 +1,10 @@
+# Title: Confessions of St. Augustine
+
+## Author: Augustine of Hippo
+
+## Year: 400
+
+-------
 
 ##  BOOK I 
 

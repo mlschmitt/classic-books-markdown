@@ -1,3 +1,10 @@
+# Title: Rip Van Winkle
+
+## Author: Washington Irving
+
+## Year: 1819
+
+-------
 
 ###  A POSTHUMOUS WRITING OF DIEDRICH KNICKERBOCKER.
 

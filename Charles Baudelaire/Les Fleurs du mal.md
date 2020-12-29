@@ -1,3 +1,10 @@
+# Title: Les Fleurs du mal
+
+## Author: Charles Baudelaire
+
+## Year: 1857
+
+-------
 _Translated by Cyril Scott_
 
 ### Benediction

@@ -1,3 +1,10 @@
+# Title: The Mysterious Rider
+
+## Author: Zane Grey
+
+## Year: 1920
+
+-------
 
 ## CHAPTER I
 

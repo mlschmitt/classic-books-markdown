@@ -1,3 +1,10 @@
+# Title: The House of the Seven Gables
+
+## Author: Nathaniel Hawthorne
+
+## Year: 1851
+
+-------
 
 ### Chapter I - The Old Pyncheon Family  
 

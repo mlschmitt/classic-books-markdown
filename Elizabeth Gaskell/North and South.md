@@ -1,3 +1,10 @@
+# Title: North and South
+
+## Author: Elizabeth Gaskell
+
+## Year: 1854
+
+-------
 
 ## CHAPTER I--'HASTE TO THE WEDDING'
 

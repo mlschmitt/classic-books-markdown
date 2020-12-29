@@ -1,3 +1,10 @@
+# Title: The Adventure of Charles Augustus Milverton
+
+## Author: Arthur Conan Doyle
+
+## Year: 1904
+
+-------
 It is years since the incidents of which I speak took place, and yet it is with diffidence that I allude to them. For a long time, even with the utmost discretion and reticence, it would have been impossible to make the facts public, but now the principal person concerned is beyond the reach of human law, and with due suppression the story may be told in such fashion as to injure no one. It records an absolutely unique experience in the career both of Mr. Sherlock Holmes and of myself. The reader will excuse me if I conceal the date or any other fact by which he might trace the actual occurrence.
 
 We had been out for one of our evening rambles, Holmes and I, and had returned about six o'clock on a cold, frosty winter's evening. As Holmes turned up the lamp the light fell upon a card on the table. He glanced at it, and then, with an ejaculation of disgust, threw it on the floor. I picked it up and read:

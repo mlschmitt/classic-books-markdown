@@ -1,3 +1,10 @@
+# Title: The Lost Stradivarius
+
+## Author: J. Meade Falkner
+
+## Year: 1895
+
+-------
 Letter from MISS SOPHIA MALTRAVERS to her Nephew, SIR EDWARD MALTRAVERS, then a Student at Christ Church, Oxford.
 
 _13 Pauncefort Buildings, Bath, Oct. 21, 1867._

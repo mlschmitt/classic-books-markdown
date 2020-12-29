@@ -1,3 +1,10 @@
+# Title: Love and Friendship and Other Early Works
+
+## Author: Jane Austen
+
+## Year: 1790
+
+-------
 
 ## LOVE AND FREINDSHIP
 

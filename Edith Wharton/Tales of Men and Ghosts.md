@@ -1,3 +1,10 @@
+# Title: Tales of Men and Ghosts
+
+## Author: Edith Wharton
+
+## Year: 1910
+
+-------
 
 ##  THE BOLTED DOOR
 

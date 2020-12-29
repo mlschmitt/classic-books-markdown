@@ -1,3 +1,10 @@
+# Title: The Innocence of Father Brown
+
+## Author: G.K. Chesterton
+
+## Year: 1911
+
+-------
 
 ##  The Blue Cross
 

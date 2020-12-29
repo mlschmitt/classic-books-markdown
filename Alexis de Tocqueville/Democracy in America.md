@@ -1,3 +1,10 @@
+# Title: Democracy in America
+
+## Author: Alexis de Tocqueville
+
+## Year: 1835
+
+-------
 _Translated by Henry Reeve_
 
 ## Book One

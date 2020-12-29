@@ -1,3 +1,10 @@
+# Title: The Beautiful Eyes of Ysidria
+
+## Author: Charles A. Gunnison
+
+## Year: 1894
+
+-------
 
 ## I.
 

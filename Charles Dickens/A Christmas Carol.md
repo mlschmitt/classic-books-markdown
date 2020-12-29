@@ -1,3 +1,10 @@
+# Title: A Christmas Carol
+
+## Author: Charles Dickens
+
+## Year: 1843
+
+-------
 
 ##  STAVE  ONE
 

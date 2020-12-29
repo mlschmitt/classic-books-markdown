@@ -1,3 +1,10 @@
+# Title: Letters Written During a Short Residence in Sweden, Norway, and Denmark
+
+## Author: Mary Wollstonecraft
+
+## Year: 1796
+
+-------
 
 ## LETTER I.
 

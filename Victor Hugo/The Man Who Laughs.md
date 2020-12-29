@@ -1,3 +1,10 @@
+# Title: The Man Who Laughs
+
+## Author: Victor Hugo
+
+## Year: 1869
+
+-------
 
 ##  PRELIMINARY CHAPTER - URSUS.
 

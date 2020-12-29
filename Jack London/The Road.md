@@ -1,3 +1,10 @@
+# Title: The Road
+
+## Author: Jack London
+
+## Year: 1907
+
+-------
 "Speakin' in general, I 'ave tried 'em all,  
 The 'appy roads that take you o'er the world.  
 Speakin' in general, I 'ave found them good  

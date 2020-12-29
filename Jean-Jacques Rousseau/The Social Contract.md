@@ -1,3 +1,10 @@
+# Title: The Social Contract
+
+## Author: Jean-Jacques Rousseau
+
+## Year: 1762
+
+-------
 _Translated by George Douglas Howard Cole_
 
 ### FOREWORD

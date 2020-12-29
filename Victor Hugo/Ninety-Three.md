@@ -1,3 +1,10 @@
+# Title: Ninety-Three
+
+## Author: Victor Hugo
+
+## Year: 1874
+
+-------
 _Translated by Aline Delano_
 
 ## PART I. AT SEA.

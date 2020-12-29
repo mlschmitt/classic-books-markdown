@@ -1,3 +1,10 @@
+# Title: Bulfinch's Mythology
+
+## Author: Thomas Bulfinch
+
+## Year: 1855
+
+-------
 
 # Bulfinch's Mythology
 

@@ -1,3 +1,10 @@
+# Title: The Federalist Papers
+
+## Author: Publius
+
+## Year: 1788
+
+-------
 
 ##  FEDERALIST No. 1. General Introduction
 

@@ -1,3 +1,10 @@
+# Title: Wuthering Heights
+
+## Author: Emily Bronte
+
+## Year: 1847
+
+-------
 
 ## CHAPTER 1
 

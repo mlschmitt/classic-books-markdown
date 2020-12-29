@@ -1,3 +1,10 @@
+# Title: Christmas Stories from French and Spanish Writers
+
+## Author: Various
+
+## Year: 1892
+
+-------
 
 ## A BIRD IN THE SNOW
 

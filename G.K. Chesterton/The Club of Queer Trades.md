@@ -1,3 +1,10 @@
+# Title: The Club of Queer Trades
+
+## Author: G.K. Chesterton
+
+## Year: 1905
+
+-------
 
 ##  Chapter 1. The Tremendous Adventures of Major Brown
 

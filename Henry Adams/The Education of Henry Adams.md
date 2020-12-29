@@ -1,3 +1,10 @@
+# Title: The Education of Henry Adams
+
+## Author: Henry Adams
+
+## Year: 1918
+
+-------
 
 ### CHAPTER I: QUINCY (1838-1848)
 

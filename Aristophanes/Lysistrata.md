@@ -1,3 +1,10 @@
+# Title: Lysistrata
+
+## Author: Aristophanes
+
+## Year: 411 BC
+
+-------
 LYSISTRATA _stands alone with the Propylaea at her back._
 
 

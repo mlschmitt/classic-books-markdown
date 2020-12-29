@@ -1,3 +1,10 @@
+# Title: The Red Badge of Courage 
+
+## Author: Stephen Crane
+
+## Year: 1895
+
+-------
 
 ###  Chapter 1 
 

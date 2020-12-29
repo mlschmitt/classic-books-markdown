@@ -1,3 +1,10 @@
+# Title: The First Christmas Tree
+
+## Author: Henry van Dyke
+
+## Year: 1897
+
+-------
 
 ## I - THE CALL OF THE WOODSMAN
 

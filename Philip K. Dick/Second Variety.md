@@ -1,3 +1,10 @@
+# Title: Second Variety
+
+## Author: Philip K. Dick
+
+## Year: 1953
+
+-------
 The Russian soldier made his way nervously up the ragged side of the hill, holding his gun ready. He glanced around him, licking his dry lips, his face set. From time to time he reached up a gloved hand and wiped perspiration from his neck, pushing down his coat collar.
 
 Eric turned to Corporal Leone. "Want him? Or can I have him?" He adjusted the view sight so the Russian's features squarely filled the glass, the lines cutting across his hard, somber features.

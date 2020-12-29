@@ -1,3 +1,10 @@
+# Title: A Portrait of the Artist as a Young Man
+
+## Author: James Joyce
+
+## Year: 1916
+
+-------
 _"Et ignotas animum dimittit in artes." Ovid, Metamorphoses, VIII., 18._
 
 ###  Chapter 1 

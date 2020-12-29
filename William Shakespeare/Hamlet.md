@@ -1,3 +1,10 @@
+# Title: Hamlet
+
+## Author: William Shakespeare
+
+## Year: 1602
+
+-------
 
 ## ACT I
 

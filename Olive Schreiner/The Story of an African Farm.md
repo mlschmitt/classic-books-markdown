@@ -1,3 +1,10 @@
+# Title: The Story of an African Farm
+
+## Author: Olive Schreiner
+
+## Year: 1883
+
+-------
 
 ##  Part I. 
 

@@ -1,3 +1,10 @@
+# Title: Aurora Leigh
+
+## Author: Elizabeth Barrett Browning
+
+## Year: 1856
+
+-------
 
 ### FIRST BOOK
 

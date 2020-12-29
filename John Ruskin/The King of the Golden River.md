@@ -1,3 +1,10 @@
+# Title: The King of the Golden River
+
+## Author: John Ruskin
+
+## Year: 1842
+
+-------
 
 ## CHAPTER I.
 

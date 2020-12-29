@@ -1,3 +1,10 @@
+# Title: Captains Courageous
+
+## Author: Rudyard Kipling
+
+## Year: 1897
+
+-------
 
 ##  CHAPTER I
 

@@ -1,3 +1,10 @@
+# Title: Antigone
+
+## Author: Sophocles
+
+## Year: 441 BC
+
+-------
 _ANTIGONE and ISMENE before the Palace gates._
 
 **ANTIGONE**

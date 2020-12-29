@@ -1,3 +1,10 @@
+# Title: An Old-Fashioned Girl
+
+## Author: Louisa May Alcott
+
+## Year: 1869
+
+-------
 
 ##  CHAPTER I. POLLY ARRIVES
 

@@ -1,3 +1,10 @@
+# Title: Anne of Avonlea
+
+## Author: Lucy Maud Montgomery
+
+## Year: 1909
+
+-------
 
 ##  I - An Irate Neighbor
 

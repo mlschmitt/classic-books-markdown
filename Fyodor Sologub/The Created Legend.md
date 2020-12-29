@@ -1,3 +1,10 @@
+# Title: The Created Legend
+
+## Author: Fyodor Sologub
+
+## Year: 1907
+
+-------
 _Translated by John Cournos_
 
 

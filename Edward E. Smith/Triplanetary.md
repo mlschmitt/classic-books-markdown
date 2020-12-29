@@ -1,3 +1,10 @@
+# Title: Triplanetary
+
+## Author: Edward E. Smith
+
+## Year: 1934
+
+-------
 
 ## BOOK ONE - DAWN
 

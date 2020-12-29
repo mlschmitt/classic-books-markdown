@@ -1,3 +1,10 @@
+# Title: An Ideal Husband
+
+## Author: Oscar Wilde
+
+## Year: 1895
+
+-------
 
 ## FIRST ACT
 

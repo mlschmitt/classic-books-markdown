@@ -1,3 +1,10 @@
+# Title: Robur the Conqueror
+
+## Author: Jules Verne
+
+## Year: 1886
+
+-------
 
 ###  Chapter I: MYSTERIOUS SOUNDS
 

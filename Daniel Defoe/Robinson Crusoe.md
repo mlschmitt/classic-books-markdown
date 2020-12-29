@@ -1,3 +1,10 @@
+# Title: Robinson Crusoe
+
+## Author: Daniel Defoe
+
+## Year: 1719
+
+-------
 
 ## CHAPTER I -- START IN LIFE
 

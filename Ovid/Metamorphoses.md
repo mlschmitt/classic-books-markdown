@@ -1,3 +1,10 @@
+# Title: Metamorphoses
+
+## Author: Ovid
+
+## Year: 8 AD
+
+-------
 _Translated by Sir Samuel Garth, John Dryden, et al_
 
 ### BOOK THE FIRST

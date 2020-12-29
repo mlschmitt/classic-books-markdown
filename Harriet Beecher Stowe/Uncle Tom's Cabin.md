@@ -1,3 +1,10 @@
+# Title: Uncle Tom's Cabin
+
+## Author: Harriet Beecher Stowe
+
+## Year: 1852
+
+-------
 
 ##  VOLUME I
 

@@ -1,3 +1,10 @@
+# Title: The Analects
+
+## Author: Confucius
+
+## Year: 400 BC
+
+-------
 _Translated by James Legge_
 
 ## BOOK I.  HSIO R.

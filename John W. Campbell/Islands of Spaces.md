@@ -1,3 +1,10 @@
+# Title: Islands of Spaces
+
+## Author: John W. Campbell
+
+## Year: 1957
+
+-------
 
 ## Prologue
 

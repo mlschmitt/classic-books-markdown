@@ -1,3 +1,10 @@
+# Title: The Death of Halpin Frayser
+
+## Author: Ambrose Bierce
+
+## Year: 1891
+
+-------
 
 ## I  
   

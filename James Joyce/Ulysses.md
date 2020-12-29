@@ -1,3 +1,10 @@
+# Title: Ulysses
+
+## Author: James Joyce
+
+## Year: 1922
+
+-------
 
 ## I
 

@@ -1,3 +1,10 @@
+# Title: Five Weeks in a Balloon
+
+## Author: Jules Verne
+
+## Year: 1863
+
+-------
 
 ##  CHAPTER FIRST.
 

@@ -1,3 +1,10 @@
+# Title: Travels in West Africa
+
+## Author: Mary Kingsley
+
+## Year: 1897
+
+-------
 
 ## INTRODUCTION.
 

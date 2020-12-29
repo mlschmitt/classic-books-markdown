@@ -1,3 +1,10 @@
+# Title: The Lost Continent
+
+## Author: C.J. Cutliffe Hyne
+
+## Year: 1899
+
+-------
 
 ## PREFATORY: THE LEGATEES OF DEUCALION
 

@@ -1,3 +1,10 @@
+# Title: The Agricola and The Germania
+
+## Author: Tacitus
+
+## Year: 98
+
+-------
 _The Oxford Translation_
 
 ## A TREATISE ON THE SITUATION, MANNERS AND INHABITANTS OF GERMANY

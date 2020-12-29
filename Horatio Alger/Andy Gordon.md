@@ -1,3 +1,10 @@
+# Title: Andy Gordon
+
+## Author: Horatio Alger
+
+## Year: 1900
+
+-------
 
 ## CHAPTER I - THE YOUNG JANITOR.
 

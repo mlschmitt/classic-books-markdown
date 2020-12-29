@@ -1,3 +1,10 @@
+# Title: The Adventure of the Priory School
+
+## Author: Arthur Conan Doyle
+
+## Year: 1904
+
+-------
 We have had some dramatic entrances and exits upon our small stage at Baker Street, but I cannot recollect anything more sudden and startling than the first appearance of Thorneycroft Huxtable, M.A., Ph.D., etc. His card, which seemed too small to carry the weight of his academic distinctions, preceded him by a few seconds, and then he entered himself--so large, so pompous, and so dignified that he was the very embodiment of self-possession and solidity. And yet his first action, when the door had closed behind him, was to stagger against the table, whence he slipped down upon the floor, and there was that majestic figure prostrate and insensible upon our bearskin hearth-rug.
 
 We had sprung to our feet, and for a few moments we stared in silent amazement at this ponderous piece of wreckage, which told of some sudden and fatal storm far out on the ocean of life. Then Holmes hurried with a cushion for his head, and I with brandy for his lips. The heavy, white face was seamed with lines of trouble, the hanging pouches under the closed eyes were leaden in colour, the loose mouth drooped dolorously at the corners, the rolling chins were unshaven. Collar and shirt bore the grime of a long journey, and the hair bristled unkempt from the well-shaped head. It was a sorely stricken man who lay before us.

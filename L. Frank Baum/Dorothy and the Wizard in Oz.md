@@ -1,3 +1,10 @@
+# Title: Dorothy and the Wizard in Oz
+
+## Author: L. Frank Baum
+
+## Year: 1908
+
+-------
 
 ## CHAPTER 1 - THE EARTHQUAKE
 

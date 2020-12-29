@@ -1,3 +1,10 @@
+# Title: The Boscombe Valley Mystery
+
+## Author: Arthur Conan Doyle
+
+## Year: 1891
+
+-------
 We were seated at breakfast one morning, my wife and I, when the maid brought in a telegram. It was from Sherlock Holmes and ran in this way:
 
 "Have you a couple of days to spare? Have just been wired for from the west of England in connection with Boscombe Valley tragedy. Shall be glad if you will come with me. Air and scenery perfect. Leave Paddington by the 11:15."

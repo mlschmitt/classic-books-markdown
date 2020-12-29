@@ -1,3 +1,10 @@
+# Title: Unveiling a Parallel
+
+## Author: Alice Ilgenfritz Jones & Ella Merchant
+
+## Year: 1893
+
+-------
 
 # Chapter 1. A Remarkable Acquaintance.
 

@@ -1,3 +1,10 @@
+# Title: The Jungle Book
+
+## Author: Rudyard Kipling
+
+## Year: 1894
+
+-------
 
 ##  Mowgli's Brothers 
 

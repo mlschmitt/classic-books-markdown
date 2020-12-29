@@ -1,3 +1,10 @@
+# Title: Ivanhoe
+
+## Author: Walter Scott
+
+## Year: 1820
+
+-------
 
 ##  CHAPTER I
 

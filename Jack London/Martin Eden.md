@@ -1,3 +1,10 @@
+# Title: Martin Eden
+
+## Author: Jack London
+
+## Year: 1909
+
+-------
 
 ## CHAPTER I
 

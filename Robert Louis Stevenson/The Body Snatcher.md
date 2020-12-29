@@ -1,3 +1,10 @@
+# Title: The Body Snatcher
+
+## Author: Robert Louis Stevenson
+
+## Year: 1884
+
+-------
 Every night in the year, four of us sat in the small parlour of the George at Debenham—the undertaker, and the landlord, and Fettes, and myself.  Sometimes there would be more; but blow high, blow low, come rain or snow or frost, we four would be each planted in his own particular arm-chair.  Fettes was an old drunken Scotchman, a man of education obviously, and a man of some property, since he lived in idleness.  He had come to Debenham years ago, while still young, and by a mere continuance of living had grown to be an adopted townsman.  His blue camlet cloak was a local antiquity, like the church-spire.  His place in the parlour at the George, his absence from church, his old, crapulous, disreputable vices, were all things of course in Debenham.  He had some vague Radical opinions and some fleeting infidelities, which he would now and again set forth and emphasise with tottering slaps upon the table.  He drank rum—five glasses regularly every evening; and for the greater portion of his nightly visit to the George sat, with his glass in his right hand, in a state of melancholy alcoholic saturation.  We called him the Doctor, for he was supposed to have some special knowledge of medicine, and had been known, upon a pinch, to set a fracture or reduce a dislocation; but beyond these slight particulars, we had no knowledge of his character and antecedents.
 
 One dark winter night—it had struck nine some time before the landlord joined us—there was a sick man in the George, a great neighbouring proprietor suddenly struck down with apoplexy on his way to Parliament; and the great man's still greater London doctor had been telegraphed to his bedside.  It was the first time that such a thing had happened in Debenham, for the railway was but newly open, and we were all proportionately moved by the occurrence.

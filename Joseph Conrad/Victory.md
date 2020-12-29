@@ -1,3 +1,10 @@
+# Title: Victory
+
+## Author: Joseph Conrad
+
+## Year: 1915
+
+-------
 
 ##  PART ONE
 

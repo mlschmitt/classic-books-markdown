@@ -1,3 +1,10 @@
+# Title: The Prince and the Pauper
+
+## Author: Mark Twain
+
+## Year: 1881
+
+-------
 
 ## Chapter I. The Birth of the Prince and the Pauper.
 

@@ -1,3 +1,10 @@
+# Title: Critique of Pure Reason
+
+## Author: Immanuel Kant
+
+## Year: 1781
+
+-------
 _Translated by J. M. D. Meiklejohn_
 
 

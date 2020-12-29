@@ -1,3 +1,10 @@
+# Title: Wonders of the Invisible World
+
+## Author: Cotton Mather
+
+## Year: 1693
+
+-------
 Being an Account of the TRYALS OF Several Witches, Lately Excuted in NEW-ENGLAND: And of several remarkable Curiosities therein Occurring.
 
 Together with,

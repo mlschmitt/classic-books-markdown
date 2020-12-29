@@ -1,3 +1,10 @@
+# Title: Operation Interstellar
+
+## Author: George O. Smith
+
+## Year: 1950
+
+-------
 
 ## CHAPTER 1
 

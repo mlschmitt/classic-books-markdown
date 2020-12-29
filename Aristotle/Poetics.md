@@ -1,3 +1,10 @@
+# Title: Poetics
+
+## Author: Aristotle
+
+## Year: 335 BC
+
+-------
 
 ##  I 
 

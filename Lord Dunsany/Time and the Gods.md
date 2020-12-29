@@ -1,3 +1,10 @@
+# Title: Time and the Gods
+
+## Author: Lord Dunsany
+
+## Year: 1906
+
+-------
 
 ## PREFACE
 

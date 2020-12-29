@@ -1,3 +1,10 @@
+# Title: The Wind in the Rosebush
+
+## Author: Mary E. Wilkins Freeman
+
+## Year: 1903
+
+-------
 
 ###  THE WIND IN THE ROSE-BUSH
 

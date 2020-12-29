@@ -1,3 +1,10 @@
+# Title: The Innocents Abroad
+
+## Author: Mark Twain
+
+## Year: 1869
+
+-------
 
 ##  PREFACE
 

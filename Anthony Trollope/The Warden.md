@@ -1,3 +1,10 @@
+# Title: The Warden
+
+## Author: Anthony Trollope
+
+## Year: 1855
+
+-------
 
 ### Chapter I - Hiram's Hospital
 

@@ -1,3 +1,10 @@
+# Title: Anne of Green Gables
+
+## Author: Lucy Maud Montgomery
+
+## Year: 1908
+
+-------
 
 ##  CHAPTER 1 - Mrs. Rachel Lynde is Surprised 
 

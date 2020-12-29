@@ -1,3 +1,10 @@
+# Title: Cane
+
+## Author: Jean Toomer
+
+## Year: 1923
+
+-------
 _TO MY GRANDMOTHER..._
 
 ## Karintha

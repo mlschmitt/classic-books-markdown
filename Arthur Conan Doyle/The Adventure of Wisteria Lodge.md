@@ -1,3 +1,10 @@
+# Title: The Adventure of Wisteria Lodge
+
+## Author: Arthur Conan Doyle
+
+## Year: 1908
+
+-------
 
 ### 1 - The Singular Experience of Mr. John Scott Eccles
 

@@ -1,3 +1,10 @@
+# Title: Wired Love
+
+## Author: Ella Cheever Thayer
+
+## Year: 1880
+
+-------
 
 ## I - Sounds from a Distant "C"
 

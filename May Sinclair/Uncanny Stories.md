@@ -1,3 +1,10 @@
+# Title: Uncanny Stories
+
+## Author: May Sinclair
+
+## Year: 1923
+
+-------
 
 ## WHERE THEIR FIRE IS NOT QUENCHED
 

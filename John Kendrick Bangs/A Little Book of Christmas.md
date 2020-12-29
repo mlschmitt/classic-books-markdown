@@ -1,3 +1,10 @@
+# Title: A Little Book of Christmas
+
+## Author: John Kendrick Bangs
+
+## Year: 1912
+
+-------
 
 ### A TOAST TO SANTA CLAUS
 

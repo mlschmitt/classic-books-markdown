@@ -1,3 +1,10 @@
+# Title: The Oregon Trail
+
+## Author: Francis Parkman
+
+## Year: 1847
+
+-------
 
 ## CHAPTER I - THE FRONTIER
 

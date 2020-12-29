@@ -1,3 +1,10 @@
+# Title: Niels Klim's Underground Travels
+
+## Author: Ludvig Holberg
+
+## Year: 1741
+
+-------
 
 ## APOLOGETIC PREFACE.
 

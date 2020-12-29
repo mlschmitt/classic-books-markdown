@@ -1,3 +1,10 @@
+# Title: Rainbow Valley
+
+## Author: Lucy Maud Montgomery
+
+## Year: 1919
+
+-------
 
 ##  CHAPTER I. HOME AGAIN
 

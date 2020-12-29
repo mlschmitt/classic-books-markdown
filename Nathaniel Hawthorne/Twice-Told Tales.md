@@ -1,3 +1,10 @@
+# Title: Twice-Told Tales
+
+## Author: Nathaniel Hawthorne
+
+## Year: 1837
+
+-------
 
 ###  THE GRAY CHAMPION.
 

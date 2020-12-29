@@ -1,3 +1,10 @@
+# Title: The Captain's Daughter
+
+## Author: Alexander Pushkin
+
+## Year: 1836
+
+-------
 _Translated by Thomas Keane_
 
 ### CHAPTER I. THE SERGEANT OF THE GUARDS.

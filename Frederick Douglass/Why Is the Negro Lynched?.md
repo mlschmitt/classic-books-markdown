@@ -1,3 +1,10 @@
+# Title: Why Is the Negro Lynched?
+
+## Author: Frederick Douglass
+
+## Year: 1895
+
+-------
 
 ## I.
 

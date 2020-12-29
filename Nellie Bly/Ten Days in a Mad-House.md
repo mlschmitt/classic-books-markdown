@@ -1,3 +1,10 @@
+# Title: Ten Days in a Mad-House
+
+## Author: Nellie Bly
+
+## Year: 1887
+
+-------
 
 ### INTRODUCTION.
 

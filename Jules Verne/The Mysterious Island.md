@@ -1,3 +1,10 @@
+# Title: The Mysterious Island
+
+## Author: Jules Verne
+
+## Year: 1874
+
+-------
 
 ##  PART 1--DROPPED FROM THE CLOUDS
 

@@ -1,3 +1,10 @@
+# Title: Kim
+
+## Author: Rudyard Kipling
+
+## Year: 1901
+
+-------
 
 ###  Chapter 1 
 

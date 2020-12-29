@@ -1,3 +1,10 @@
+# Title: The Island of Doctor Moreau
+
+## Author: H.G. Wells
+
+## Year: 1896
+
+-------
 
 ### INTRODUCTION.
 

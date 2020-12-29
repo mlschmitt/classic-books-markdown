@@ -1,3 +1,10 @@
+# Title: Dangerous Liaisons
+
+## Author: Pierre Choderlos de Laclos
+
+## Year: 1782
+
+-------
 _Translated by Thomas Moore._
 
 ## LETTER I.

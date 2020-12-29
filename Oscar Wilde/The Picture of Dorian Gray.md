@@ -1,3 +1,10 @@
+# Title: The Picture of Dorian Gray
+
+## Author: Oscar Wilde
+
+## Year: 1890
+
+-------
 
 ## THE PREFACE
 

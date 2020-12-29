@@ -1,3 +1,10 @@
+# Title: Thus Spoke Zarathustra
+
+## Author: Friedrich Nietzsche
+
+## Year: 1883
+
+-------
 _Translated By Thomas Common_
 
 ##  FIRST PART. ZARATHUSTRA'S DISCOURSES.

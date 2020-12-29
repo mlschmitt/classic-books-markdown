@@ -1,3 +1,10 @@
+# Title: A Vindication of the Rights of Woman
+
+## Author: Mary Wollstonecraft
+
+## Year: 1792
+
+-------
 
 ### INTRODUCTION.
 

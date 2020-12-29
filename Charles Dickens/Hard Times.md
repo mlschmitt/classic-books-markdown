@@ -1,3 +1,10 @@
+# Title: Hard Times
+
+## Author: Charles Dickens
+
+## Year: 1854
+
+-------
 
 ## BOOK THE FIRST: SOWING
 

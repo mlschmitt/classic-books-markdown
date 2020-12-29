@@ -1,3 +1,10 @@
+# Title: The Maker of Gargoyles
+
+## Author: Clark Ashton Smith
+
+## Year: 1932
+
+-------
 Among the many gargoyles that frowned or leered from the roof of the new-built cathedral of Vyones, two were pre-eminent above the rest by virtue of their fine workmanship and their supreme grotesquery. These two had been wrought by the stone-carver Blaise Reynard, a native of Vyones, who had lately returned from a long sojourn in the cities of Provence, and had secured employment on the cathedral when the three years' task of its construction and ornamentation was well-nigh completed. In view of the wonderful artistry shown by Reynard, it was regretted by Ambrosius, the archbishop, that it had not been possible to commit the execution of all the gargoyles to this delicate and accomplished workman; but other people, with less liberal tastes than Ambrosius, were heard to express a different opinion.
 
 This opinion, perhaps, was tinged by the personal dislike that had been generally felt toward Reynard in Vyones even from his boyhood; and which had been revived with some virulence on his return. Whether rightly or unjustly, his very physiognomy had always marked him out for public disfavor: he was inordinately dark, with hair and beard of a preternatural bluish-black, and slanting, ill-matched eyes that gave him a sinister and cunning air. His taciturn and saturnine ways were such as a superstitious people would identify with necromantic knowledge or complicity; and there were those who covertly accused him of being in league with Satan; though the accusations were little more than vague, anonymous rumors, even to the end, through lack of veritable evidence.

@@ -1,3 +1,10 @@
+# Title: The Hunchback of Notre-Dame
+
+## Author: Victor Hugo
+
+## Year: 1831
+
+-------
 _Translated by Isabel F. Hapgood_
 
 ##  VOLUME I. 

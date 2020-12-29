@@ -1,3 +1,10 @@
+# Title: Essays
+
+## Author: Ralph Waldo Emerson
+
+## Year: 1841
+
+-------
 
 ## THE AMERICAN SCHOLAR
 

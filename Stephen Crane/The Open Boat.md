@@ -1,3 +1,10 @@
+# Title: The Open Boat
+
+## Author: Stephen Crane
+
+## Year: 1897
+
+-------
 _A Tale intended to be after the Fact. Being the Experience of Four Men from the Sunk Steamer 'Commodore'_
 
 ### I

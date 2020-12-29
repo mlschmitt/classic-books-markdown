@@ -1,3 +1,10 @@
+# Title: The Gambler
+
+## Author: Fyodor Dostoyevsky
+
+## Year: 1867
+
+-------
 _Translated by Translated by C. J. Hogarth_
 
 ###  I 

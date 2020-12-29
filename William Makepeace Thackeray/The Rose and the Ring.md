@@ -1,3 +1,10 @@
+# Title: The Rose and the Ring
+
+## Author: William Makepeace Thackeray
+
+## Year: 1854
+
+-------
 
 ##  I. SHOWS HOW THE ROYAL FAMILY SATE DOWN TO BREAKFAST 
 

@@ -1,3 +1,10 @@
+# Title: The Adventure of the Dancing Men
+
+## Author: Arthur Conan Doyle
+
+## Year: 1903
+
+-------
 Holmes had been seated for some hours in silence with his long, thin back curved over a chemical vessel in which he was brewing a particularly malodorous product. His head was sunk upon his breast, and he looked from my point of view like a strange, lank bird, with dull gray plumage and a black top-knot.
 
 "So, Watson," said he, suddenly, "you do not propose to invest in South African securities?"

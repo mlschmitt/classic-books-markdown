@@ -1,3 +1,10 @@
+# Title: Blood and Sand
+
+## Author: Vicente Blasco Ibáñez
+
+## Year: 1908
+
+-------
 
 ## Translated by W.A. Gillespie
 

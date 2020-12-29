@@ -1,3 +1,10 @@
+# Title: The Prince
+
+## Author: Niccolò Machiavelli
+
+## Year: 1532
+
+-------
 
 ##  CHAPTER I -- HOW MANY KINDS OF PRINCIPALITIES THERE ARE, AND BY WHAT MEANS THEY ARE ACQUIRED
 

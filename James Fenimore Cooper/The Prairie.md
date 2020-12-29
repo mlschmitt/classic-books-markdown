@@ -1,3 +1,10 @@
+# Title: The Prairie
+
+## Author: James Fenimore Cooper
+
+## Year: 1827
+
+-------
 
 ##  CHAPTER I.
 

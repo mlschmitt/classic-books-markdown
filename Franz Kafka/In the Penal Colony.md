@@ -1,3 +1,10 @@
+# Title: In the Penal Colony
+
+## Author: Franz Kafka
+
+## Year: 1919
+
+-------
 "It's a peculiar apparatus," said the Officer to the Traveler, gazing with a certain admiration at the device, with which he was, of course, thoroughly familiar. It appeared that the Traveler had responded to the invitation of the Commandant only out of politeness, when he had been invited to attend the execution of a soldier condemned for disobeying and insulting his superior. Of course, interest in the execution was not very high, not even in the penal colony itself. At least, here in the small, deep, sandy valley, closed in on all sides by barren slopes, apart from the Officer and the Traveler there were present only the Condemned, a vacant-looking man with a broad mouth and dilapidated hair and face, and the Soldier, who held the heavy chain to which were connected the small chains which bound the Condemned Man by his feet and wrist bones, as well as by his neck, and which were also linked to each other by connecting chains. The Condemned Man had an expression of such dog-like resignation that it looked as if one could set him free to roam around the slopes and would only have to whistle at the start of the execution for him to return.
 
 The Traveler had little interest in the apparatus and walked back and forth behind the Condemned Man, almost visibly indifferent, while the Officer took care of the final preparations. Sometimes he crawled under the apparatus, which was built deep into the earth, and sometimes he climbed up a ladder to inspect the upper parts. These were really jobs which could have been left to a mechanic, but the Officer carried them out with great enthusiasm, maybe because he was particularly fond of this apparatus or maybe because there was some other reason why one could not trust the work to anyone else. "It's all ready now!" he finally cried and climbed back down the ladder. He was unusually tired, breathing with his mouth wide open, and he had pushed two fine lady's handkerchiefs under the collar of his uniform.

@@ -1,3 +1,10 @@
+# Title: The Captain of the Pole-Star
+
+## Author: Arthur Conan Doyle
+
+## Year: 1895
+
+-------
 _[Being an extract from the singular journal of JOHN M'ALISTER RAY, student of medicine.]_
 
 _September 11th._--Lat. 81 degrees 40' N.; long. 2 degrees E. Still lying-to amid enormous ice fields. The one which stretches away to the north of us, and to which our ice-anchor is attached, cannot be smaller than an English county. To the right and left unbroken sheets extend to the horizon. This morning the mate reported that there were signs of pack ice to the southward. Should this form of sufficient thickness to bar our return, we shall be in a position of danger, as the food, I hear, is already running somewhat short. It is late in the season, and the nights are beginning to reappear.

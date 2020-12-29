@@ -1,3 +1,10 @@
+# Title: The Crystal Crypt
+
+## Author: Philip K. Dick
+
+## Year: 1954
+
+-------
 "Attention, Inner-Flight ship! Attention! You are ordered to land at the Control Station on Deimos for inspection. Attention! You are to land at once!"
 
 The metallic rasp of the speaker echoed through the corridors of the great ship. The passengers glanced at each other uneasily, murmuring and peering out the port windows at the small speck below, the dot of rock that was the Martian checkpoint, Deimos.

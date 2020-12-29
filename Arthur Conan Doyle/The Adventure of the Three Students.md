@@ -1,3 +1,10 @@
+# Title: The Adventure of the Three Students
+
+## Author: Arthur Conan Doyle
+
+## Year: 1904
+
+-------
 It was in the year '95 that a combination of events, into which I need not enter, caused Mr. Sherlock Holmes and myself to spend some weeks in one of our great university towns, and it was during this time that the small but instructive adventure which I am about to relate befell us. It will be obvious that any details which would help the reader exactly to identify the college or the criminal would be injudicious and offensive. So painful a scandal may well be allowed to die out. With due discretion the incident itself may, however, be described, since it serves to illustrate some of those qualities for which my friend was remarkable. I will endeavour, in my statement, to avoid such terms as would serve to limit the events to any particular place, or give a clue as to the people concerned.
 
 We were residing at the time in furnished lodgings close to a library where Sherlock Holmes was pursuing some laborious researches in early English charters--researches which led to results so striking that they may be the subject of one of my future narratives. Here it was that one evening we received a visit from an acquaintance, Mr. Hilton Soames, tutor and lecturer at the College of St. Luke's. Mr. Soames was a tall, spare man, of a nervous and excitable temperament. I had always known him to be restless in his manner, but on this particular occasion he was in such a state of uncontrollable agitation that it was clear something very unusual had occurred.

@@ -1,3 +1,10 @@
+# Title: Oroonoko
+
+## Author: Aphra Behn
+
+## Year: 1688
+
+-------
 I do not pretend, in giving you the history of this Royal Slave, to entertain my reader with adventures of a feigned hero, whose life and fortunes fancy may manage at the poet's pleasure; nor in relating the truth, design to adorn it with any accidents but such as arrived in earnest to him: and it shall come simply into the world, recommended by its own proper merits and natural intrigues; there being enough of reality to support it, and to render it diverting, without the addition of invention.
 
 I was myself an eye-witness to a great part of what you will find here set down; and what I could not be witness of, I received from the mouth of the chief actor in this history, the hero himself, who gave us the whole transactions of his youth: and though I shall omit, for brevity's sake, a thousand little accidents of his life, which, however pleasant to us, where history was scarce and adventures very rare, yet might prove tedious and heavy to my reader, in a world where he finds diversions for every minute, new and strange. But we who were perfectly charmed with the character of this great man were curious to gather every circumstance of his life.

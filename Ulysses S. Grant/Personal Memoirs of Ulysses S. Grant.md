@@ -1,3 +1,10 @@
+# Title: Personal Memoirs of Ulysses S. Grant
+
+## Author: Ulysses S. Grant
+
+## Year: 1885
+
+-------
 
 ## CHAPTER I: ANCESTRY--BIRTH--BOYHOOD.
 

@@ -1,3 +1,10 @@
+# Title: Our Mutual Friend
+
+## Author: Charles Dickens
+
+## Year: 1864
+
+-------
 
 ## BOOK THE FIRST -- THE CUP AND THE LIP 
 

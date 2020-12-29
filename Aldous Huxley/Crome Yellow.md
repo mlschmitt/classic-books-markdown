@@ -1,3 +1,10 @@
+# Title: Crome Yellow
+
+## Author: Aldous Huxley
+
+## Year: 1921
+
+-------
 
 ##  CHAPTER I.
 

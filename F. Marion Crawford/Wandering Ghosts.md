@@ -1,3 +1,10 @@
+# Title: Wandering Ghosts
+
+## Author: F. Marion Crawford
+
+## Year: 1903
+
+-------
 
 ## THE DEAD SMILE
 

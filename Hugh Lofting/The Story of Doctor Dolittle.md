@@ -1,3 +1,10 @@
+# Title: The Story of Doctor Dolittle
+
+## Author: Hugh Lofting
+
+## Year: 1920
+
+-------
 
 ## THE FIRST CHAPTER - PUDDLEBY
 

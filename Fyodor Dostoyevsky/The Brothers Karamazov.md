@@ -1,3 +1,10 @@
+# Title: The Brothers Karamazov
+
+## Author: Fyodor Dostoyevsky
+
+## Year: 1880
+
+-------
 _Translated by Constance Garnett_
 
 #  Part I

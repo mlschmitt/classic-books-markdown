@@ -1,3 +1,10 @@
+# Title: Bhagavad Gita
+
+## Author: Anonymous
+
+## Year: 400 BC
+
+-------
 _Translated by Sir Edwin Arnold_
 
 

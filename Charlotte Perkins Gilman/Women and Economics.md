@@ -1,3 +1,10 @@
+# Title: Women and Economics
+
+## Author: Charlotte Perkins Gilman
+
+## Year: 1898
+
+-------
 
 ### _A Study of the Economic Relation Between Men and Women as a Factor in Social Evolution_
 

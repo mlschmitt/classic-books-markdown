@@ -1,3 +1,10 @@
+# Title: Irish Fairy Tales
+
+## Author: James Stephens
+
+## Year: 1920
+
+-------
 
 ##  THE STORY OF TUAN MAC CAIRILL
 

@@ -1,3 +1,10 @@
+# Title: The Haunted Bookshop
+
+## Author: Christopher Morley
+
+## Year: 1919
+
+-------
 
 ### Chapter I - The Haunted Bookshop
 

@@ -1,3 +1,10 @@
+# Title: Angel Island
+
+## Author: Inez Haynes Gillmore
+
+## Year: 1914
+
+-------
 
 ##  I 
 

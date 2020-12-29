@@ -1,3 +1,10 @@
+# Title: Nostromo
+
+## Author: Joseph Conrad
+
+## Year: 1904
+
+-------
 _"So foul a sky clears not without a storm."_
 SHAKESPEARE
 

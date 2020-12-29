@@ -1,3 +1,10 @@
+# Title: Swann's Way
+
+## Author: Marcel Proust
+
+## Year: 1913
+
+-------
 _Translated by C.K. Scott Moncrieff_
 
 ### Overture

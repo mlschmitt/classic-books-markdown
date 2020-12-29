@@ -1,3 +1,10 @@
+# Title: Silver Blaze
+
+## Author: Arthur Conan Doyle
+
+## Year: 1892
+
+-------
 "I am afraid, Watson, that I shall have to go," said Holmes, as we sat down together to our breakfast one morning.
 
 "Go! Where to?"

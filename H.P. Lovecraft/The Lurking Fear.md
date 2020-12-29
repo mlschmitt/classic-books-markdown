@@ -1,3 +1,10 @@
+# Title: The Lurking Fear
+
+## Author: H.P. Lovecraft
+
+## Year: 1923
+
+-------
 
 ### I. THE SHADOW ON THE CHIMNEY
 

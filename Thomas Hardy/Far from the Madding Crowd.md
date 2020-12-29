@@ -1,3 +1,10 @@
+# Title: Far from the Madding Crowd
+
+## Author: Thomas Hardy
+
+## Year: 1874
+
+-------
 
 ## CHAPTER I: DESCRIPTION OF FARMER OAK -- AN INCIDENT
 

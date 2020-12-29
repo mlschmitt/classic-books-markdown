@@ -1,3 +1,10 @@
+# Title: Young Goodman Brown
+
+## Author: Nathaniel Hawthorne
+
+## Year: 1835
+
+-------
 Young Goodman Brown came forth at sunset into the street at Salem village; but put his head back, after crossing the threshold, to exchange a parting kiss with his young wife. And Faith, as the wife was aptly named, thrust her own pretty head into the street, letting the wind play with the pink ribbons of her cap while she called to Goodman Brown. 
 
 "Dearest heart," whispered she, softly and rather sadly, when her lips were close to his ear, "prithee put off your journey until sunrise and sleep in your own bed to-night. A lone woman is troubled with such dreams and such thoughts that she's afeard of herself sometimes. Pray tarry with me this night, dear husband, of all nights in the year." 

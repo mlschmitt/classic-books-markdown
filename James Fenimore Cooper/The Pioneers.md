@@ -1,3 +1,10 @@
+# Title: The Pioneers
+
+## Author: James Fenimore Cooper
+
+## Year: 1823
+
+-------
 
 ##  CHAPTER I.
 

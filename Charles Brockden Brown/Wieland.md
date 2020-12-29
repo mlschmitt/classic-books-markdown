@@ -1,3 +1,10 @@
+# Title: Wieland
+
+## Author: Charles Brockden Brown
+
+## Year: 1798
+
+-------
 
 ##  Chapter I 
 

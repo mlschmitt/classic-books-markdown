@@ -1,3 +1,10 @@
+# Title: The Return of Tarzan
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1913
+
+-------
 
 ###  Chapter I - The Affair on the Liner 
 

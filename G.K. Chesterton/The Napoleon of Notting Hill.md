@@ -1,3 +1,10 @@
+# Title: The Napoleon of Notting Hill
+
+## Author: G.K. Chesterton
+
+## Year: 1904
+
+-------
 
 ## Book I
 

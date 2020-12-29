@@ -1,3 +1,10 @@
+# Title: The Blue Lagoon
+
+## Author: Henry De Vere Stacpoole
+
+## Year: 1908
+
+-------
 
 ## BOOK I
 

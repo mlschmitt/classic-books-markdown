@@ -1,3 +1,10 @@
+# Title: The Tell-Tale Heart and Other Tales
+
+## Author: Edgar Allan Poe
+
+## Year: 1843
+
+-------
 
 ##  THE MASQUE OF THE RED DEATH.
 

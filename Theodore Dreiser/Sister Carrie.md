@@ -1,3 +1,10 @@
+# Title: Sister Carrie
+
+## Author: Theodore Dreiser
+
+## Year: 1900
+
+-------
 
 ## CHAPTER I - THE MAGNET ATTRACTING: A WAIF AMID FORCES
 

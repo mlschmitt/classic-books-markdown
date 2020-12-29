@@ -1,3 +1,10 @@
+# Title: The Enchanted Barn
+
+## Author: Grace Livingston Hill
+
+## Year: 1917
+
+-------
 
 ###  CHAPTER I
 

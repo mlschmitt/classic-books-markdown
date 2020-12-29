@@ -1,3 +1,10 @@
+# Title: The Coral Island
+
+## Author: R.M. Ballantyne
+
+## Year: 1858
+
+-------
 
 ## Preface
 

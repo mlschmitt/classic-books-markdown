@@ -1,3 +1,10 @@
+# Title: The Yellow Wallpaper
+
+## Author: Charlotte Perkins Gilman
+
+## Year: 1892
+
+-------
 It is very seldom that mere ordinary people like John and myself secure ancestral halls for the summer.
 
 A colonial mansion, a hereditary estate, I would say a haunted house, and reach the height of romantic felicity—but that would be asking too much of fate!

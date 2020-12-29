@@ -1,3 +1,10 @@
+# Title: Aesop's Fables
+
+## Author: Aesop
+
+## Year: 600 BC
+
+-------
 _TRANSLATION BY V. S. VERNON JONES_
 
 ## THE FOX AND THE GRAPES

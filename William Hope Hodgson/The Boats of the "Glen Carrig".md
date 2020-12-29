@@ -1,3 +1,10 @@
+# Title: The Boats of the "Glen Carrig"
+
+## Author: William Hope Hodgson
+
+## Year: 1907
+
+-------
 
 ## I - The Land of Lonesomeness
 

@@ -1,3 +1,10 @@
+# Title: The Gloria Scott
+
+## Author: Arthur Conan Doyle
+
+## Year: 1893
+
+-------
 "I have some papers here," said my friend Sherlock Holmes, as we sat one winter's night on either side of the fire, "which I really think, Watson, that it would be worth your while to glance over. These are the documents in the extraordinary case of the Gloria Scott, and this is the message which struck Justice of the Peace Trevor dead with horror when he read it."
 
 He had picked from a drawer a little tarnished cylinder, and, undoing the tape, he handed me a short note scrawled upon a half-sheet of slate-gray paper.

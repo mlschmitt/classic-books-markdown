@@ -1,3 +1,10 @@
+# Title: Ozma of Oz
+
+## Author: L. Frank Baum
+
+## Year: 1907
+
+-------
 
 ## The Girl in the Chicken Coop
 

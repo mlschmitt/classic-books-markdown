@@ -1,3 +1,10 @@
+# Title: The Garden of God
+
+## Author: Henry De Vere Stacpoole
+
+## Year: 1923
+
+-------
 
 ## BOOK I - ON THE ISLAND
 

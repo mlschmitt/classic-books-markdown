@@ -1,3 +1,10 @@
+# Title: Poems: Three Series
+
+## Author: Emily Dickinson
+
+## Year: 1896
+
+-------
 
 ## Poems - First Series
 

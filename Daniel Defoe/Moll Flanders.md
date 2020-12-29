@@ -1,3 +1,10 @@
+# Title: Moll Flanders
+
+## Author: Daniel Defoe
+
+## Year: 1722
+
+-------
 
 ###  THE AUTHOR'S PREFACE
 

@@ -1,3 +1,10 @@
+# Title: Romola
+
+## Author: George Eliot
+
+## Year: 1862
+
+-------
 
 ### Prologue.
 

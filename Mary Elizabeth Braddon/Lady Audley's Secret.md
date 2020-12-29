@@ -1,3 +1,10 @@
+# Title: Lady Audley's Secret
+
+## Author: Mary Elizabeth Braddon
+
+## Year: 1862
+
+-------
 
 ## CHAPTER I - LUCY.
 

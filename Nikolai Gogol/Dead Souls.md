@@ -1,3 +1,10 @@
+# Title: Dead Souls
+
+## Author: Nikolai Gogol
+
+## Year: 1842
+
+-------
 
 ##  CHAPTER I
 

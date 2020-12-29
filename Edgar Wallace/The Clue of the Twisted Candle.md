@@ -1,3 +1,10 @@
+# Title: The Clue of the Twisted Candle
+
+## Author: Edgar Wallace
+
+## Year: 1916
+
+-------
 
 ##  CHAPTER I
 

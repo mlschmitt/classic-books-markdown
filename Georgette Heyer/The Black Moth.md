@@ -1,3 +1,10 @@
+# Title: The Black Moth
+
+## Author: Georgette Heyer
+
+## Year: 1921
+
+-------
 
 ### PROLOGUE
 

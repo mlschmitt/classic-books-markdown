@@ -1,3 +1,10 @@
+# Title: The Land of Little Rain
+
+## Author: Mary Hunter Austin
+
+## Year: 1903
+
+-------
 
 ##  PREFACE
 

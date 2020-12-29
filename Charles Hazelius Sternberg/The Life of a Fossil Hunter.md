@@ -1,3 +1,10 @@
+# Title: The Life of a Fossil Hunter
+
+## Author: Charles Hazelius Sternberg
+
+## Year: 1909
+
+-------
 
 ## CHAPTER I: EARLY DAYS AND WORK IN THE DAKOTA GROUP OF THE CRETACEOUS
 

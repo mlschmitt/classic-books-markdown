@@ -1,3 +1,10 @@
+# Title: The Inside of the Cup
+
+## Author: Winston Churchill
+
+## Year: 1913
+
+-------
 
 ## Volume 1. 
 

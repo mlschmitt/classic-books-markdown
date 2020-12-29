@@ -1,3 +1,10 @@
+# Title: King Lear
+
+## Author: William Shakespeare
+
+## Year: 1606
+
+-------
 
 ## ACT I
 

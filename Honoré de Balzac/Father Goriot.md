@@ -1,3 +1,10 @@
+# Title: Father Goriot
+
+## Author: Honoré de Balzac
+
+## Year: 1835
+
+-------
 Mme. Vauquer (_nee_ de Conflans) is an elderly person, who for the past forty years has kept a lodging-house in the Rue Nueve-Sainte-Genevieve, in the district that lies between the Latin Quarter and the Faubourg Saint-Marcel. Her house (known in the neighborhood as the _Maison Vauquer_) receives men and women, old and young, and no word has ever been breathed against her respectable establishment; but, at the same time, it must be said that as a matter of fact no young woman has been under her roof for thirty years, and that if a young man stays there for any length of time it is a sure sign that his allowance must be of the slenderest. In 1819, however, the time when this drama opens, there was an almost penniless young girl among Mme. Vauquer's boarders. 
 
 That word drama has been somewhat discredited of late; it has been overworked and twisted to strange uses in these days of dolorous literature; but it must do service again here, not because this story is dramatic in the restricted sense of the word, but because some tears may perhaps be shed _intra et extra muros_ before it is over. 

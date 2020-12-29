@@ -1,3 +1,10 @@
+# Title: Brood of the Witch-Queen
+
+## Author: Sax Rohmer
+
+## Year: 1918
+
+-------
 
 ## I - Antony Ferrara
 

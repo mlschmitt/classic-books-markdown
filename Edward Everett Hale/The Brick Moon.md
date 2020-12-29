@@ -1,3 +1,10 @@
+# Title: The Brick Moon
+
+## Author: Edward Everett Hale
+
+## Year: 1869
+
+-------
 _[From the papers of Captain FREDERIC INGHAM.]_
 
 ## I - PREPARATION

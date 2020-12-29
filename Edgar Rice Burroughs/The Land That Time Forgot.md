@@ -1,3 +1,10 @@
+# Title: The Land That Time Forgot
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1918
+
+-------
 
 ###  Chapter 1 
 

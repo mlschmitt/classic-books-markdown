@@ -1,3 +1,10 @@
+# Title: The Crux
+
+## Author: Charlotte Perkins Gilman
+
+## Year: 1910
+
+-------
 
 ## PREFACE
 

@@ -1,3 +1,10 @@
+# Title: Anna Karenina
+
+## Author: Leo Tolstoy
+
+## Year: 1877
+
+-------
 _Translated by Constance Garnett_
 
 ## PART ONE

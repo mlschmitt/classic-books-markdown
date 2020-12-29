@@ -1,3 +1,10 @@
+# Title: Sultana's Dream
+
+## Author: Rokeya Sakhawat Hossain
+
+## Year: 1905
+
+-------
 One evening I was lounging in an easy chair in my bedroom and thinking lazily of the condition of Indian womanhood. I am not sure whether I dozed off or not. But, as far as I remember, I was wide awake. I saw the moonlit sky sparkling with thousands of diamond-like stars, very distinctly.
 
 All on a sudden a lady stood before me; how she came in, I do not know. I took her for my friend, Sister Sara.

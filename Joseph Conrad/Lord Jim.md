@@ -1,3 +1,10 @@
+# Title: Lord Jim
+
+## Author: Joseph Conrad
+
+## Year: 1900
+
+-------
 
 ##  CHAPTER 1 
 

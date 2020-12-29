@@ -1,3 +1,10 @@
+# Title: The Lost World
+
+## Author: Arthur Conan Doyle
+
+## Year: 1912
+
+-------
 _I have wrought my simple plan_
 _If I give one hour of joy_
 _To the boy who's half a man,_ 

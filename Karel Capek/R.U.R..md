@@ -1,3 +1,10 @@
+# Title: R.U.R.
+
+## Author: Karel Capek
+
+## Year: 1920
+
+-------
 *Translated by Paul Selver*
 
 ## ACT ONE

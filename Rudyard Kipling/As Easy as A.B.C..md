@@ -1,3 +1,10 @@
+# Title: As Easy as A.B.C.
+
+## Author: Rudyard Kipling
+
+## Year: 1912
+
+-------
 _The A.B.C., that semi-elected, semi-nominated body of a few score persons, controls the Planet. Transportation is Civilisation, our motto runs. Theoretically we do what we please, so long as we do not interfere with the traffic_ and all it implies. _Practically, the A.B.C. confirms or annuls all international arrangements, and, to judge from its last report, finds our tolerant, humorous, lazy little Planet only too ready to shift the whole burden of public administration on its shoulders_.
 
 - With the Night Mail.

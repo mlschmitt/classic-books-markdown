@@ -1,3 +1,10 @@
+# Title: Through the Looking-Glass
+
+## Author: Lewis Carroll
+
+## Year: 1871
+
+-------
 
 ##  CHAPTER I. Looking-Glass house 
 

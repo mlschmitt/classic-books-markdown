@@ -1,3 +1,10 @@
+# Title: A Connecticut Yankee in King Arthur's Court
+
+## Author: Mark Twain
+
+## Year: 1889
+
+-------
 
 ###  A WORD OF EXPLANATION
 

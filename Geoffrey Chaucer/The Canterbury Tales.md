@@ -1,3 +1,10 @@
+# Title: The Canterbury Tales
+
+## Author: Geoffrey Chaucer
+
+## Year: 1478
+
+-------
 
 ### Prologue
 

@@ -1,3 +1,10 @@
+# Title: Parnassus on Wheels
+
+## Author: Christopher Morley
+
+## Year: 1917
+
+-------
 A LETTER TO
 David Grayson, Esq.
 OF HEMPFIELD, U.S.A.

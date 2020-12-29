@@ -1,3 +1,10 @@
+# Title: Candide
+
+## Author: Voltaire
+
+## Year: 1759
+
+-------
 
 ## I - HOW CANDIDE WAS BROUGHT UP IN A MAGNIFICENT CASTLE, AND HOW HE WAS EXPELLED THENCE.
 

@@ -1,3 +1,10 @@
+# Title: The Woman in White
+
+## Author: Wilkie Collins
+
+## Year: 1859
+
+-------
 
 ###  THE STORY BEGUN BY WALTER HARTRIGHT (of Clement's Inn, Teacher of Drawing)
 

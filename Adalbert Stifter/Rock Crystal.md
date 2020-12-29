@@ -1,3 +1,10 @@
+# Title: Rock Crystal
+
+## Author: Adalbert Stifter
+
+## Year: 1845
+
+-------
 _Translated by Lee M. Hollander_
 
 

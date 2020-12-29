@@ -1,3 +1,10 @@
+# Title: The Lair of the White Worm
+
+## Author: Bram Stoker
+
+## Year: 1911
+
+-------
 
 ## CHAPTER I-ADAM SALTON ARRIVES
 

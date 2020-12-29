@@ -1,3 +1,10 @@
+# Title: Vathek
+
+## Author: William Beckford
+
+## Year: 1782
+
+-------
 
 ## PREFACE
 

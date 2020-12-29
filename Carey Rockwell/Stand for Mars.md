@@ -1,3 +1,10 @@
+# Title: Stand for Mars
+
+## Author: Carey Rockwell
+
+## Year: 1952
+
+-------
 
 ## I
 

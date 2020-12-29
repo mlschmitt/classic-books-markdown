@@ -1,3 +1,10 @@
+# Title: Erewhon
+
+## Author: Samuel Butler
+
+## Year: 1872
+
+-------
 
 ## CHAPTER I: WASTE LANDS
 

@@ -1,3 +1,10 @@
+# Title: The Hanging Stranger
+
+## Author: Philip K. Dick
+
+## Year: 1953
+
+-------
 Ed had always been a practical man, when he saw something was wrong he tried to correct it. Then one day he saw _it_ hanging in the town square.
 
 Five o'clock Ed Loyce washed up, tossed on his hat and coat, got his car out and headed across town toward his TV sales store. He was tired. His back and shoulders ached from digging dirt out of the basement and wheeling it into the back yard. But for a forty-year-old man he had done okay. Janet could get a new vase with the money he had saved; and he liked the idea of repairing the foundations himself!

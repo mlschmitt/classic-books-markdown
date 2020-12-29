@@ -1,3 +1,10 @@
+# Title: The Inimitable Jeeves
+
+## Author: P.G. Wodehouse
+
+## Year: 1923
+
+-------
 
 ## CHAPTER I - JEEVES EXERTS THE OLD CEREBELLUM
 

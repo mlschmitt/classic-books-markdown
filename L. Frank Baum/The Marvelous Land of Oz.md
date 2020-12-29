@@ -1,3 +1,10 @@
+# Title: The Marvelous Land of Oz
+
+## Author: L. Frank Baum
+
+## Year: 1904
+
+-------
 
 ##  Tip Manufactures a Pumpkinhead
 

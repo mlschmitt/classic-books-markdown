@@ -1,3 +1,10 @@
+# Title: The Histories
+
+## Author: Herodotus
+
+## Year: 440 BC
+
+-------
 
 ##  BOOK I. THE FIRST BOOK OF THE HISTORIES, CALLED CLIO 
 

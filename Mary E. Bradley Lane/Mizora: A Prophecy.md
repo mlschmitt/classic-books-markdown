@@ -1,3 +1,10 @@
+# Title: Mizora: A Prophecy
+
+## Author: Mary E. Bradley Lane
+
+## Year: 1880
+
+-------
 
 ### A mss. found among the private papers of the Princess Vera Zarovitch;
 

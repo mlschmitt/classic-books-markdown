@@ -1,3 +1,10 @@
+# Title: Ethan Frome
+
+## Author: Edith Wharton
+
+## Year: 1911
+
+-------
 I had the story, bit by bit, from various people, and, as generally happens in such cases, each time it was a different story.
 
 If you know Starkfield, Massachusetts, you know the post-office. If you know the post-office you must have seen Ethan Frome drive up to it, drop the reins on his hollow-backed bay and drag himself across the brick pavement to the white colonnade; and you must have asked who he was.

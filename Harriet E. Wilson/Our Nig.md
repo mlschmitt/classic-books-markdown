@@ -1,3 +1,10 @@
+# Title: Our Nig
+
+## Author: Harriet E. Wilson
+
+## Year: 1859
+
+-------
 "I know
 That care has iron crowns for many brows;
 That Calvaries are everywhere, whereon

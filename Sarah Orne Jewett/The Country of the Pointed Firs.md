@@ -1,3 +1,10 @@
+# Title: The Country of the Pointed Firs
+
+## Author: Sarah Orne Jewett
+
+## Year: 1896
+
+-------
 
 ##  I. The Return 
 

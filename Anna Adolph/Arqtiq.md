@@ -1,3 +1,10 @@
+# Title: Arqtiq
+
+## Author: Anna Adolph
+
+## Year: 1899
+
+-------
 
 ### A Story of the Marvels at the North Pole
 

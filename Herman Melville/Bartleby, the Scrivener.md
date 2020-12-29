@@ -1,3 +1,10 @@
+# Title: Bartleby, the Scrivener
+
+## Author: Herman Melville
+
+## Year: 1853
+
+-------
 I am a rather elderly man. The nature of my avocations for the last thirty years has brought me into more than ordinary contact with what would seem an interesting and somewhat singular set of men, of whom as yet nothing that I know of has ever been written:—I mean the law-copyists or scriveners. I have known very many of them, professionally and privately, and if I pleased, could relate divers histories, at which good-natured gentlemen might smile, and sentimental souls might weep. But I waive the biographies of all other scriveners for a few passages in the life of Bartleby, who was a scrivener of the strangest I ever saw or heard of. While of other law-copyists I might write the complete life, of Bartleby nothing of that sort can be done. I believe that no materials exist for a full and satisfactory biography of this man. It is an irreparable loss to literature. Bartleby was one of those beings of whom nothing is ascertainable, except from the original sources, and in his case those are very small. What my own astonished eyes saw of Bartleby, _that_ is all I know of him, except, indeed, one vague report which will appear in the sequel.
 
 Ere introducing the scrivener, as he first appeared to me, it is fit I make some mention of myself, my _employees_, my business, my chambers, and general surroundings; because some such description is indispensable to an adequate understanding of the chief character about to be presented.

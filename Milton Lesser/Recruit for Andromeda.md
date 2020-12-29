@@ -1,3 +1,10 @@
+# Title: Recruit for Andromeda
+
+## Author: Milton Lesser
+
+## Year: 1959
+
+-------
 
 ## CHAPTER I
 

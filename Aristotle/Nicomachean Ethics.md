@@ -1,3 +1,10 @@
+# Title: Nicomachean Ethics
+
+## Author: Aristotle
+
+## Year: 340 BC
+
+-------
 _Translated by F. H. Peters_
 
 ## Book I

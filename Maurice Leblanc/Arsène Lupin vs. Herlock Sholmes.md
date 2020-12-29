@@ -1,3 +1,10 @@
+# Title: Arsène Lupin vs. Herlock Sholmes
+
+## Author: Maurice Leblanc
+
+## Year: 1908
+
+-------
 
 ##  I - Lottery Ticket No. 514
 

@@ -1,3 +1,10 @@
+# Title: With Her in Ourland
+
+## Author: Charlotte Perkins Gilman
+
+## Year: 1916
+
+-------
 
 # Synopsis of Herland
 

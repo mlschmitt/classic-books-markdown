@@ -1,3 +1,10 @@
+# Title: Hawaii's Story
+
+## Author: Queen Liliʻuokalani
+
+## Year: 1898
+
+-------
 
 ## CHAPTER I - A SKETCH OF MY CHILDHOOD
 

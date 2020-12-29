@@ -1,3 +1,10 @@
+# Title: Star Hunter
+
+## Author: Andre Norton
+
+## Year: 1961
+
+-------
 
 ## I
 

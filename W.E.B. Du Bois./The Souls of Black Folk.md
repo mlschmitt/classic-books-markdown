@@ -1,3 +1,10 @@
+# Title: The Souls of Black Folk
+
+## Author: W.E.B. Du Bois.
+
+## Year: 1903
+
+-------
 
 ###  The Forethought 
 

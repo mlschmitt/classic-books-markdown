@@ -1,3 +1,10 @@
+# Title: Journal of the Plague Year
+
+## Author: Daniel Defoe
+
+## Year: 1722
+
+-------
 Being observations or memorials of the most remarkable occurrences, as well public as private, which happened in London during the last great visitation in 1665.
 
 Written by a Citizen who continued all the while in London. Never made public before -

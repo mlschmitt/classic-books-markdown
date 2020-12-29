@@ -1,3 +1,10 @@
+# Title: The Shining Pyramid
+
+## Author: Arthur Machen
+
+## Year: 1895
+
+-------
 
 ### 1 - The Arrow-head Character
 

@@ -1,3 +1,10 @@
+# Title: Tales of the Jazz Age
+
+## Author: F. Scott Fitzgerald
+
+## Year: 1922
+
+-------
 
 ## MY LAST FLAPPERS
 

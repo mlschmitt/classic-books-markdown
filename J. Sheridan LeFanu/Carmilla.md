@@ -1,3 +1,10 @@
+# Title: Carmilla
+
+## Author: J. Sheridan LeFanu
+
+## Year: 1871
+
+-------
 **PROLOGUE**
 
 _Upon a paper attached to the Narrative which follows, Doctor Hesselius has written a rather elaborate note, which he accompanies with a reference to his Essay on the strange subject which the MS. illuminates._

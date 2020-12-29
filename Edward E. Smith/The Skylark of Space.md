@@ -1,3 +1,10 @@
+# Title: The Skylark of Space
+
+## Author: Edward E. Smith
+
+## Year: 1928
+
+-------
 
 ## CHAPTER I - The Occurrence of the Impossible
 

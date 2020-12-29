@@ -1,3 +1,10 @@
+# Title: Love's Labour's Lost
+
+## Author: William Shakespeare
+
+## Year: 1598
+
+-------
 
 ##### SCENE: Navarre
 

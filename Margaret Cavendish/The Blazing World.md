@@ -1,3 +1,10 @@
+# Title: The Blazing World
+
+## Author: Margaret Cavendish
+
+## Year: 1666
+
+-------
 _Here on this Figure Cast a Glance.
 But so as if it were by Chance,
 Your eyes not fixt, they must not Stay,

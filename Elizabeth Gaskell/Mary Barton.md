@@ -1,3 +1,10 @@
+# Title: Mary Barton
+
+## Author: Elizabeth Gaskell
+
+## Year: 1848
+
+-------
 
 ### PREFACE.
 

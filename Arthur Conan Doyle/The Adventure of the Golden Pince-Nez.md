@@ -1,3 +1,10 @@
+# Title: The Adventure of the Golden Pince-Nez
+
+## Author: Arthur Conan Doyle
+
+## Year: 1904
+
+-------
 When I look at the three massive manuscript volumes which contain our work for the year 1894, I confess that it is very difficult for me, out of such a wealth of material, to select the cases which are most interesting in themselves, and at the same time most conducive to a display of those peculiar powers for which my friend was famous. As I turn over the pages, I see my notes upon the repulsive story of the red leech and the terrible death of Crosby, the banker. Here also I find an account of the Addleton tragedy, and the singular contents of the ancient British barrow. The famous Smith-Mortimer succession case comes also within this period, and so does the tracking and arrest of Huret, the Boulevard assassin--an exploit which won for Holmes an autograph letter of thanks from the French President and the Order of the Legion of Honour. Each of these would furnish a narrative, but on the whole I am of opinion that none of them unites so many singular points of interest as the episode of Yoxley Old Place, which includes not only the lamentable death of young Willoughby Smith, but also those subsequent developments which threw so curious a light upon the causes of the crime.
 
 It was a wild, tempestuous night, towards the close of November. Holmes and I sat together in silence all the evening, he engaged with a powerful lens deciphering the remains of the original inscription upon a palimpsest, I deep in a recent treatise upon surgery. Outside the wind howled down Baker Street, while the rain beat fiercely against the windows. It was strange there, in the very depths of the town, with ten miles of man's handiwork on every side of us, to feel the iron grip of Nature, and to be conscious that to the huge elemental forces all London was no more than the molehills that dot the fields. I walked to the window, and looked out on the deserted street. The occasional lamps gleamed on the expanse of muddy road and shining pavement. A single cab was splashing its way from the Oxford Street end.

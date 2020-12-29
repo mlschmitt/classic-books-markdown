@@ -1,3 +1,10 @@
+# Title: Fear and Trembling
+
+## Author: Sören Kierkegaard
+
+## Year: 1843
+
+-------
 _Translated by Walter Lowrie_
 
 ## Preface

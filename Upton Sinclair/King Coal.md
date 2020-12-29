@@ -1,3 +1,10 @@
+# Title: King Coal
+
+## Author: Upton Sinclair
+
+## Year: 1917
+
+-------
 
 ##  BOOK ONE -- THE DOMAIN OF KING COAL
 

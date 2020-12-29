@@ -1,3 +1,10 @@
+# Title: The Great American Fraud
+
+## Author: Samuel Hopkins Adams
+
+## Year: 1905
+
+-------
 
 ##  I. THE GREAT AMERICAN FRAUD.
 

@@ -1,3 +1,10 @@
+# Title: The Scarlet Pimpernel
+
+## Author: Emma Orczy
+
+## Year: 1905
+
+-------
 
 ##  CHAPTER I PARIS: SEPTEMBER, 1792 
 

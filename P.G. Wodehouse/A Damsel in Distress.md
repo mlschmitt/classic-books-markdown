@@ -1,3 +1,10 @@
+# Title: A Damsel in Distress
+
+## Author: P.G. Wodehouse
+
+## Year: 1919
+
+-------
 
 ## CHAPTER 1.
 

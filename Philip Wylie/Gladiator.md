@@ -1,3 +1,10 @@
+# Title: Gladiator
+
+## Author: Philip Wylie
+
+## Year: 1930
+
+-------
 
 ## I
 

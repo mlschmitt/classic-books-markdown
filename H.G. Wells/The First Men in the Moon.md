@@ -1,3 +1,10 @@
+# Title: The First Men in the Moon
+
+## Author: H.G. Wells
+
+## Year: 1901
+
+-------
 
 ## Chapter 1 - Mr. Bedford Meets Mr. Cavor at Lympne
 

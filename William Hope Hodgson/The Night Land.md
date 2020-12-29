@@ -1,3 +1,10 @@
+# Title: The Night Land
+
+## Author: William Hope Hodgson
+
+## Year: 1912
+
+-------
 
 ## THE DREAMS THAT ARE ONLY DREAMS
 

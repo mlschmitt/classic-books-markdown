@@ -1,3 +1,10 @@
+# Title: Agnes Grey
+
+## Author: Anne Bronte
+
+## Year: 1847
+
+-------
 
 ## CHAPTER I--THE PARSONAGE
 

@@ -1,3 +1,10 @@
+# Title: Arsène Lupin, Gentleman Burglar
+
+## Author: Maurice Leblanc
+
+## Year: 1907
+
+-------
 
 ##  I - The Arrest of Arsène Lupin
 

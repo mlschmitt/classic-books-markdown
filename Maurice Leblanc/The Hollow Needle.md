@@ -1,3 +1,10 @@
+# Title: The Hollow Needle
+
+## Author: Maurice Leblanc
+
+## Year: 1909
+
+-------
 *Translated by Alexander Teixeira de Mattos*
 
 ## I - The Shot

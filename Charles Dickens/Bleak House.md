@@ -1,3 +1,10 @@
+# Title: Bleak House
+
+## Author: Charles Dickens
+
+## Year: 1853
+
+-------
 
 ### CHAPTER I - In Chancery
 

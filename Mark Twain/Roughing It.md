@@ -1,3 +1,10 @@
+# Title: Roughing It
+
+## Author: Mark Twain
+
+## Year: 1872
+
+-------
 
 ##  PREFATORY. 
 

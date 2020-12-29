@@ -1,3 +1,10 @@
+# Title: Discourse on the Method
+
+## Author: Rene Descartes
+
+## Year: 1637
+
+-------
 
 ###  PREFATORY NOTE BY THE AUTHOR
 

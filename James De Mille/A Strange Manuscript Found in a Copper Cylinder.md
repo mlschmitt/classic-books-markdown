@@ -1,3 +1,10 @@
+# Title: A Strange Manuscript Found in a Copper Cylinder
+
+## Author: James De Mille
+
+## Year: 1888
+
+-------
 
 ### CHAPTER I - THE FINDING OF THE COPPER CYLINDER
 

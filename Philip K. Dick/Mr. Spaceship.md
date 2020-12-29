@@ -1,3 +1,10 @@
+# Title: Mr. Spaceship
+
+## Author: Philip K. Dick
+
+## Year: 1953
+
+-------
 Kramer leaned back. "You can see the situation. How can we deal with a factor like this? The perfect variable."
 
 "Perfect? Prediction should still be possible. A living thing still acts from necessity, the same as inanimate material. But the cause-effect chain is more subtle; there are more factors to be considered. The difference is quantitative, I think. The reaction of the living organism parallels natural causation, but with greater complexity."

@@ -1,3 +1,10 @@
+# Title: Rights of Man
+
+## Author: Thomas Paine
+
+## Year: 1791
+
+-------
 
 ##  RIGHTS OF MAN. PART THE FIRST BEING AN ANSWER TO MR. BURKE'S ATTACK ON THE FRENCH REVOLUTION 
 

@@ -1,3 +1,10 @@
+# Title: The Scarlet Plague
+
+## Author: Jack London
+
+## Year: 1912
+
+-------
 
 ##  I
 

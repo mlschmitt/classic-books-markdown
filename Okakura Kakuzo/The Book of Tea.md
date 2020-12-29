@@ -1,3 +1,10 @@
+# Title: The Book of Tea
+
+## Author: Okakura Kakuzo
+
+## Year: 1906
+
+-------
 
 ##  I - The Cup of Humanity
 

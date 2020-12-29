@@ -1,3 +1,10 @@
+# Title: The Adventure of the Blue Carbuncle
+
+## Author: Arthur Conan Doyle
+
+## Year: 1892
+
+-------
 I had called upon my friend Sherlock Holmes upon the second morning after Christmas, with the intention of wishing him the compliments of the season. He was lounging upon the sofa in a purple dressing-gown, a pipe-rack within his reach upon the right, and a pile of crumpled morning papers, evidently newly studied, near at hand. Beside the couch was a wooden chair, and on the angle of the back hung a very seedy and disreputable hard-felt hat, much the worse for wear, and cracked in several places. A lens and a forceps lying upon the seat of the chair suggested that the hat had been suspended in this manner for the purpose of examination. 
 
 "You are engaged," said I; "perhaps I interrupt you."

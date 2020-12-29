@@ -1,3 +1,10 @@
+# Title: The Haunted Hotel
+
+## Author: Wilkie Collins
+
+## Year: 1879
+
+-------
 
 ##  THE FIRST PART 
 

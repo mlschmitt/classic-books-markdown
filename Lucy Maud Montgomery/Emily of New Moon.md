@@ -1,3 +1,10 @@
+# Title: Emily of New Moon
+
+## Author: Lucy Maud Montgomery
+
+## Year: 1923
+
+-------
 
 ## Chapter I - The House in the Hollow
 

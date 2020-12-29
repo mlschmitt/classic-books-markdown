@@ -1,3 +1,10 @@
+# Title: Barchester Towers
+
+## Author: Anthony Trollope
+
+## Year: 1857
+
+-------
 
 ### CHAPTER I - Who Will Be the New Bishop?  
  

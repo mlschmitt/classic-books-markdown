@@ -1,3 +1,10 @@
+# Title: The Lady with the Dog
+
+## Author: Anton Chekhov
+
+## Year: 1899
+
+-------
 _Translated by Constance Garnett_
 
 ### I

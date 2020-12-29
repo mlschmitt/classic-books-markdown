@@ -1,3 +1,10 @@
+# Title: This Crowded Earth
+
+## Author: Robert Bloch
+
+## Year: 1958
+
+-------
 The evils of long and dangerous years finally erupted in blood.
  
 

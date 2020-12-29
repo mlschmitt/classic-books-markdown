@@ -1,3 +1,10 @@
+# Title: Tarzan of the Apes
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1912
+
+-------
 
 ###  Chapter I - Out to Sea 
 

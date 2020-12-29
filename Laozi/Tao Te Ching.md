@@ -1,3 +1,10 @@
+# Title: Tao Te Ching
+
+## Author: Laozi
+
+## Year: 600 BC
+
+-------
 _Translated by James Legge_
 
 ## Part I

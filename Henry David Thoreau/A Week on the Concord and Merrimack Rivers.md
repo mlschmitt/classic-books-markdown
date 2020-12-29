@@ -1,3 +1,10 @@
+# Title: A Week on the Concord and Merrimack Rivers
+
+## Author: Henry David Thoreau
+
+## Year: 1849
+
+-------
 Where'er thou sail'st who sailed with me,
 Though now thou climbest loftier mounts,
 And fairer rivers dost ascend,

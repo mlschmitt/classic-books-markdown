@@ -1,3 +1,10 @@
+# Title: Poirot Investigates
+
+## Author: Agatha Christie
+
+## Year: 1924
+
+-------
 
 ## One - THE ADVENTURE OF "THE WESTERN STAR"
 

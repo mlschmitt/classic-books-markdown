@@ -1,3 +1,10 @@
+# Title: A Narrative of the Captivity and Restoration of Mrs. Mary Rowlandson
+
+## Author: Mary Rowlandson
+
+## Year: 1682
+
+-------
 The sovereignty and goodness of GOD, together with the faithfulness of his promises displayed, being a narrative of the captivity and restoration of Mrs. Mary Rowlandson, commended by her, to all that desires to know the Lord's doings to, and dealings with her. Especially to her dear children and relations. The second Addition [sic] Corrected and amended. Written by her own hand for her private use, and now made public at the earnest desire of some friends, and for the benefit of the afflicted. Deut. 32.39. See now that I, even I am he, and there is no god with me, I kill and I make alive, I wound and I heal, neither is there any can deliver out of my hand.
 
 On the tenth of February 1675, came the Indians with great numbers upon Lancaster: their first coming was about sunrising; hearing the noise of some guns, we looked out; several houses were burning, and the smoke ascending to heaven. There were five persons taken in one house; the father, and the mother and a sucking child, they knocked on the head; the other two they took and carried away alive. There were two others, who being out of their garrison upon some occasion were set upon; one was knocked on the head, the other escaped; another there was who running along was shot and wounded, and fell down; he begged of them his life, promising them money (as they told me) but they would not hearken to him but knocked him in head, and stripped him naked, and split open his bowels. Another, seeing many of the Indians about his barn, ventured and went out, but was quickly shot down. There were three others belonging to the same garrison who were killed; the Indians getting up upon the roof of the barn, had advantage to shoot down upon them over their fortification. Thus these murderous wretches went on, burning, and destroying before them.

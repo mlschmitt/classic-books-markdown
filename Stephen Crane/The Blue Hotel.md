@@ -1,3 +1,10 @@
+# Title: The Blue Hotel
+
+## Author: Stephen Crane
+
+## Year: 1898
+
+-------
 
 ### I
 

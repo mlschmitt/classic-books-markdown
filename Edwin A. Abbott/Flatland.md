@@ -1,3 +1,10 @@
+# Title: Flatland
+
+## Author: Edwin A. Abbott
+
+## Year: 1884
+
+-------
 **To**
 The Inhabitants of SPACE IN GENERAL
 And H. C. IN PARTICULAR

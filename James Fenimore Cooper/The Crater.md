@@ -1,3 +1,10 @@
+# Title: The Crater
+
+## Author: James Fenimore Cooper
+
+## Year: 1847
+
+-------
 
 ## Chapter I.
 

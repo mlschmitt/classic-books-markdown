@@ -1,3 +1,10 @@
+# Title: The Age of Reason
+
+## Author: Thomas Paine
+
+## Year: 1794
+
+-------
 
 ##  CHAPTER I - THE AUTHOR'S PROFESSION OF FAITH.
 

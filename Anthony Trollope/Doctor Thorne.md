@@ -1,3 +1,10 @@
+# Title: Doctor Thorne
+
+## Author: Anthony Trollope
+
+## Year: 1858
+
+-------
 
 ### CHAPTER I - The Greshams of Greshamsbury
 

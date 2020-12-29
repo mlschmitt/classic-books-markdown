@@ -1,3 +1,10 @@
+# Title: The Gentleman from San Francisco
+
+## Author: Ivan Bunin
+
+## Year: 1915
+
+-------
 _"Woe to thee, Babylon, that mighty city!"_
 Apocalypse.
 

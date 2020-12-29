@@ -1,3 +1,10 @@
+# Title: The Abbot's Ghost: A Christmas Story
+
+## Author: Louisa May Alcott
+
+## Year: 1867
+
+-------
 
 ##  Chapter I. DRAMATIS PERSONAE
 

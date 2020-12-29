@@ -1,3 +1,10 @@
+# Title: David Copperfield
+
+## Author: Charles Dickens
+
+## Year: 1850
+
+-------
 
 ##  CHAPTER 1. I AM BORN 
 

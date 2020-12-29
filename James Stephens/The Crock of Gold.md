@@ -1,3 +1,10 @@
+# Title: The Crock of Gold
+
+## Author: James Stephens
+
+## Year: 1912
+
+-------
 
 ##  BOOK I. THE COMING OF PAN
 

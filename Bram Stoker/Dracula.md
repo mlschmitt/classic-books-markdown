@@ -1,3 +1,10 @@
+# Title: Dracula
+
+## Author: Bram Stoker
+
+## Year: 1897
+
+-------
 
 ## CHAPTER 1
 

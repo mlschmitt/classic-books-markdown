@@ -1,3 +1,10 @@
+# Title: The Mark of Zorro
+
+## Author: Johnston McCulley
+
+## Year: 1919
+
+-------
 
 ## CHAPTER I - PEDRO, THE BOASTER
 

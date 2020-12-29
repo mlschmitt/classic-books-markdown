@@ -1,3 +1,10 @@
+# Title: From the Earth to the Moon
+
+## Author: Jules Verne
+
+## Year: 1865
+
+-------
 
 ## CHAPTER I - THE GUN CLUB
 

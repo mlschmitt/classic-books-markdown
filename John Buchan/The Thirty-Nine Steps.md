@@ -1,3 +1,10 @@
+# Title: The Thirty-Nine Steps
+
+## Author: John Buchan
+
+## Year: 1915
+
+-------
 
 ###  CHAPTER ONE - The Man Who Died 
 

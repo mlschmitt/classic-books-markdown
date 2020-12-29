@@ -1,3 +1,10 @@
+# Title: Journey to the Center of the Earth
+
+## Author: Jules Verne
+
+## Year: 1864
+
+-------
 _English version by Griffith and Farran_
 
 ## CHAPTER 1 - MY UNCLE MAKES A GREAT DISCOVERY

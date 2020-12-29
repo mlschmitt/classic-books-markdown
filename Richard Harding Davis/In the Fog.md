@@ -1,3 +1,10 @@
+# Title: In the Fog
+
+## Author: Richard Harding Davis
+
+## Year: 1901
+
+-------
 
 ##  CHAPTER I 
 

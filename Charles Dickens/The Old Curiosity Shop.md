@@ -1,3 +1,10 @@
+# Title: The Old Curiosity Shop
+
+## Author: Charles Dickens
+
+## Year: 1841
+
+-------
 
 ###  CHAPTER 1 
 

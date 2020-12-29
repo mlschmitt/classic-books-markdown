@@ -1,3 +1,10 @@
+# Title: Fathers and Sons
+
+## Author: Ivan Turgenev
+
+## Year: 1862
+
+-------
 _Translated by Charles James Hogarth_
 
 #### I

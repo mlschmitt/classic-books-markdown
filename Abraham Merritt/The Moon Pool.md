@@ -1,3 +1,10 @@
+# Title: The Moon Pool
+
+## Author: Abraham Merritt
+
+## Year: 1919
+
+-------
 
 ###  CHAPTER I - The Thing on the Moon Path 
 

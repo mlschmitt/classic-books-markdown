@@ -1,3 +1,10 @@
+# Title: A Scandal in Bohemia
+
+## Author: Arthur Conan Doyle
+
+## Year: 1891
+
+-------
 
 ## Part 1
 

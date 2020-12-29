@@ -1,3 +1,10 @@
+# Title: Jude the Obscure
+
+## Author: Thomas Hardy
+
+## Year: 1895
+
+-------
 
 ## Part First - AT  MARYGREEN
 

@@ -1,3 +1,10 @@
+# Title: The Call of the Wild
+
+## Author: Jack London
+
+## Year: 1903
+
+-------
 
 ##  Chapter I. Into the Primitive
 

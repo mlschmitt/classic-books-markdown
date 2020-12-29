@@ -1,3 +1,10 @@
+# Title: Moby-Dick
+
+## Author: Herman Melville
+
+## Year: 1851
+
+-------
 
 ##  CHAPTER 1. Loomings. 
 

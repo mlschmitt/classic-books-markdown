@@ -1,3 +1,10 @@
+# Title: The Spy
+
+## Author: James Fenimore Cooper
+
+## Year: 1821
+
+-------
 
 ## CHAPTER I
 

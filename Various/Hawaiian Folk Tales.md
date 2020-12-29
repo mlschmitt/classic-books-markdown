@@ -1,3 +1,10 @@
+# Title: Hawaiian Folk Tales
+
+## Author: Various
+
+## Year: 1907
+
+-------
 _Edited by Thomas G. Thrum_
 
 

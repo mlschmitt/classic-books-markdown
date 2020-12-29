@@ -1,3 +1,10 @@
+# Title: Christmas Stories
+
+## Author: Lucy Maud Montgomery
+
+## Year: 1911
+
+-------
 
 ## A Christmas Inspiration
 

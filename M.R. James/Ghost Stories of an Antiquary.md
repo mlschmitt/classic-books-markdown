@@ -1,3 +1,10 @@
+# Title: Ghost Stories of an Antiquary
+
+## Author: M.R. James
+
+## Year: 1904
+
+-------
 
 ### PART 1
 

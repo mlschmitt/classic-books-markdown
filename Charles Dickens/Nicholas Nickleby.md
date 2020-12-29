@@ -1,3 +1,10 @@
+# Title: Nicholas Nickleby
+
+## Author: Charles Dickens
+
+## Year: 1838
+
+-------
 
 ##  CHAPTER 1
 

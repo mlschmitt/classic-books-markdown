@@ -1,3 +1,10 @@
+# Title: Tess of the d'Urbervilles
+
+## Author: Thomas Hardy
+
+## Year: 1891
+
+-------
 
 ## Phase the First: The Maiden
 

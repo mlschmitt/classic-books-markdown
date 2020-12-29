@@ -1,3 +1,10 @@
+# Title: Heidi
+
+## Author: Johanna Spyri
+
+## Year: 1881
+
+-------
 _Translated by Elisabeth P. Stork_
 
 ## Part I: Heidi's Years of Learning and Travel

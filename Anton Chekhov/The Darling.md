@@ -1,3 +1,10 @@
+# Title: The Darling
+
+## Author: Anton Chekhov
+
+## Year: 1899
+
+-------
 _Translated by Thomas Seltzer._
 
 Olenka, the daughter of the retired collegiate assessor Plemyanikov, was sitting on the back-door steps of her house doing nothing. It was hot, the flies were nagging and teasing, and it was pleasant to think that it would soon be evening. Dark rain clouds were gathering from the east, wafting a breath of moisture every now and then.

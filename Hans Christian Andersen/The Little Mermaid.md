@@ -1,3 +1,10 @@
+# Title: The Little Mermaid
+
+## Author: Hans Christian Andersen
+
+## Year: 1837
+
+-------
 Far out at sea the water is as blue as the bluest cornflower, and as clear as the clearest crystal; but it is very deep, too deep for any cable to fathom, and if many steeples were piled on the top of one another they would not reach from the bed of the sea to the surface of the water. It is down there that the Mermen live.
 
 Now don't imagine that there are only bare white sands at the bottom; oh no! the most wonderful trees and plants grow there, with such flexible stalks and leaves, that at the slightest motion of the water they move just as if they were alive. All the fish, big and little, glide among the branches just as, up here, birds glide through the air. The palace of the Merman King lies in the very deepest part; its walls are of coral and the long pointed windows of the clearest amber, but the roof is made of mussel shells which open and shut with the lapping of the water. This has a lovely effect, for there are gleaming pearls in every shell, any one of which would be the pride of a queen's crown.

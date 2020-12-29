@@ -1,3 +1,10 @@
+# Title: Three Stories and Ten Poems
+
+## Author: Ernest Hemingway
+
+## Year: 1923
+
+-------
 
 ## Three Stories
 

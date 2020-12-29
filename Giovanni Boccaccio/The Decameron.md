@@ -1,3 +1,10 @@
+# Title: The Decameron
+
+## Author: Giovanni Boccaccio
+
+## Year: 1353
+
+-------
 _Translated by John Payne_
 
 Here Beginneth the Book Called Decameron and Surnamed Prince Galahalt Wherein Are Contained an Hundred Stories in Ten Days Told by Seven Ladies and Three Young Men

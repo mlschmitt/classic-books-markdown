@@ -1,3 +1,10 @@
+# Title: Middlemarch
+
+## Author: George Eliot
+
+## Year: 1871
+
+-------
 
 ###  PRELUDE 
 

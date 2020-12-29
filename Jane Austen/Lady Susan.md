@@ -1,3 +1,10 @@
+# Title: Lady Susan
+
+## Author: Jane Austen
+
+## Year: 1871
+
+-------
 
 ##  I - LADY SUSAN VERNON TO MR. VERNON
 

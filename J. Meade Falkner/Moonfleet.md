@@ -1,3 +1,10 @@
+# Title: Moonfleet
+
+## Author: J. Meade Falkner
+
+## Year: 1898
+
+-------
 _Says the Cap'n to the Crew,_
 _We have slipped the Revenue,_
 _I can see the cliffs of Dover on the lee:_

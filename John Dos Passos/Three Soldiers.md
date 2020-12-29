@@ -1,3 +1,10 @@
+# Title: Three Soldiers
+
+## Author: John Dos Passos
+
+## Year: 1921
+
+-------
 
 ##  PART ONE: MAKING THE MOULD 
 

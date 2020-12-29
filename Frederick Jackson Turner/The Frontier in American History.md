@@ -1,3 +1,10 @@
+# Title: The Frontier in American History
+
+## Author: Frederick Jackson Turner
+
+## Year: 1893
+
+-------
 
 ## I - The Significance of the Frontier in American History
 

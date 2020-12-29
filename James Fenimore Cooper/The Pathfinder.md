@@ -1,3 +1,10 @@
+# Title: The Pathfinder
+
+## Author: James Fenimore Cooper
+
+## Year: 1840
+
+-------
 
 ##  CHAPTER I.
 

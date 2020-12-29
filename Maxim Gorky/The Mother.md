@@ -1,3 +1,10 @@
+# Title: The Mother
+
+## Author: Maxim Gorky
+
+## Year: 1906
+
+-------
 
 ## PART I
 

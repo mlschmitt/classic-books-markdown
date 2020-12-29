@@ -1,3 +1,10 @@
+# Title: Kwaidan
+
+## Author: Lafcadio Hearn
+
+## Year: 1904
+
+-------
 
 ###  INTRODUCTION
 

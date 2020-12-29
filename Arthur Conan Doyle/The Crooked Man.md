@@ -1,3 +1,10 @@
+# Title: The Crooked Man
+
+## Author: Arthur Conan Doyle
+
+## Year: 1893
+
+-------
 One summer night, a few months after my marriage, I was seated by my own hearth smoking a last pipe and nodding over a novel, for my day's work had been an exhausting one. My wife had already gone upstairs, and the sound of the locking of the hall door some time before told me that the servants had also retired. I had risen from my seat and was knocking out the ashes of my pipe when I suddenly heard the clang of the bell.
 
 I looked at the clock. It was a quarter to twelve. This could not be a visitor at so late an hour. A patient, evidently, and possibly an all-night sitting. With a wry face I went out into the hall and opened the door. To my astonishment it was Sherlock Holmes who stood upon my step.

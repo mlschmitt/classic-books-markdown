@@ -1,3 +1,10 @@
+# Title: The Cask
+
+## Author: Freeman Wills Crofts
+
+## Year: 1920
+
+-------
 
 ### I - A Strange Consignment
 

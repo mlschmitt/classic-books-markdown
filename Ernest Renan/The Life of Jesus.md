@@ -1,3 +1,10 @@
+# Title: The Life of Jesus
+
+## Author: Ernest Renan
+
+## Year: 1863
+
+-------
 
 ## CHAPTER I - PLACE OF JESUS IN THE HISTORY OF THE WORLD.
 

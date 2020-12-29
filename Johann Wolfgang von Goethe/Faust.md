@@ -1,3 +1,10 @@
+# Title: Faust
+
+## Author: Johann Wolfgang von Goethe
+
+## Year: 1808
+
+-------
 _Translated by A.S. Kline_
 
 ## Part I

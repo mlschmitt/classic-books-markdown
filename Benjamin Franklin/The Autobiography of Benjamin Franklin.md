@@ -1,3 +1,10 @@
+# Title: The Autobiography of Benjamin Franklin
+
+## Author: Benjamin Franklin
+
+## Year: 1791
+
+-------
 
 ### I - ANCESTRY AND EARLY YOUTH IN BOSTON
 

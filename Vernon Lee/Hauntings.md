@@ -1,3 +1,10 @@
+# Title: Hauntings
+
+## Author: Vernon Lee
+
+## Year: 1890
+
+-------
 
 ### PASSAGES FROM THE DIARY OF SPIRIDION TREPKA.
 

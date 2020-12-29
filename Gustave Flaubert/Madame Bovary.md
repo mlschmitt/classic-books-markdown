@@ -1,3 +1,10 @@
+# Title: Madame Bovary
+
+## Author: Gustave Flaubert
+
+## Year: 1856
+
+-------
 
 ##  Part I
 

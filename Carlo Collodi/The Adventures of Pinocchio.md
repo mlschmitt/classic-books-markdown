@@ -1,3 +1,10 @@
+# Title: The Adventures of Pinocchio
+
+## Author: Carlo Collodi
+
+## Year: 1881
+
+-------
 _Translated by Carol Della Chiesa_
 
 ##  CHAPTER 1

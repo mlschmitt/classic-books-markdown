@@ -1,3 +1,10 @@
+# Title: Beyond Good and Evil
+
+## Author: Friedrich Nietzsche
+
+## Year: 1886
+
+-------
 
 ##  CHAPTER I. PREJUDICES OF PHILOSOPHERS 
 

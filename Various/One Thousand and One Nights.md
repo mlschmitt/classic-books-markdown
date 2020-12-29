@@ -1,3 +1,10 @@
+# Title: One Thousand and One Nights
+
+## Author: Various
+
+## Year: 800
+
+-------
 Translation by Edward William Lane.
 
 ## INTRODUCTION

@@ -1,3 +1,10 @@
+# Title: The Pilgrim's Progress
+
+## Author: John Bunyan
+
+## Year: 1678
+
+-------
 
 ##  Part One
 

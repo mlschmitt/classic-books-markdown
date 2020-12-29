@@ -1,3 +1,10 @@
+# Title: The Damned Thing
+
+## Author: Ambrose Bierce
+
+## Year: 1898
+
+-------
 
 ##  I
 

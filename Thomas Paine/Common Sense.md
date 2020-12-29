@@ -1,3 +1,10 @@
+# Title: Common Sense
+
+## Author: Thomas Paine
+
+## Year: 1776
+
+-------
 
 ##  INTRODUCTION.
 

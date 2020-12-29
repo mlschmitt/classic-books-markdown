@@ -1,3 +1,10 @@
+# Title: How I Found Livingstone
+
+## Author: Henry Morton Stanley
+
+## Year: 1871
+
+-------
 
 ##  CHAPTER I.-- INTRODUCTORY. MY INSTRUCTIONS TO FIND AND RELIEVE LIVINGSTONE.
 

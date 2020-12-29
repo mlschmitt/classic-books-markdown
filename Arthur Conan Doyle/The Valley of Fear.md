@@ -1,3 +1,10 @@
+# Title: The Valley of Fear
+
+## Author: Arthur Conan Doyle
+
+## Year: 1915
+
+-------
 
 ##  PART 1--The Tragedy of Birlstone
 

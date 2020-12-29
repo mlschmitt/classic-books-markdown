@@ -1,3 +1,10 @@
+# Title: The Room in the Dragon Volant
+
+## Author: J. Sheridan LeFanu
+
+## Year: 1872
+
+-------
 
 ## Prologue
 

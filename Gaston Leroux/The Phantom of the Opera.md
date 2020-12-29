@@ -1,3 +1,10 @@
+# Title: The Phantom of the Opera
+
+## Author: Gaston Leroux
+
+## Year: 1909
+
+-------
 
 ###  Prologue 
 

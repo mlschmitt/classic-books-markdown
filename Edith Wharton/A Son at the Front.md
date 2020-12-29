@@ -1,3 +1,10 @@
+# Title: A Son at the Front
+
+## Author: Edith Wharton
+
+## Year: 1923
+
+-------
 
 ## BOOK ONE
 

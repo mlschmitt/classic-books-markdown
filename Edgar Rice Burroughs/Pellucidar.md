@@ -1,3 +1,10 @@
+# Title: Pellucidar
+
+## Author: Edgar Rice Burroughs
+
+## Year: 1915
+
+-------
 
 ###  PROLOGUE 
 

@@ -1,3 +1,10 @@
+# Title: A Study in Scarlet
+
+## Author: Arthur Conan Doyle
+
+## Year: 1887
+
+-------
 
 ##  PART I. 
 

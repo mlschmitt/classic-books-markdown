@@ -1,3 +1,10 @@
+# Title: All Things Considered
+
+## Author: G.K. Chesterton
+
+## Year: 1908
+
+-------
 
 ## THE CASE FOR THE EPHEMERAL
 

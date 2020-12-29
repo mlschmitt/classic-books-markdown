@@ -1,3 +1,10 @@
+# Title: The Communist Manifesto
+
+## Author: Karl Marx & Friedrich Engels
+
+## Year: 1848
+
+-------
 A spectre is haunting Europe—the spectre of Communism. All the Powers of old Europe have entered into a holy alliance to exorcise this spectre: Pope and Czar, Metternich and Guizot, French Radicals and German police-spies.
 
 Where is the party in opposition that has not been decried as Communistic by its opponents in power? Where is the Opposition that has not hurled back the branding reproach of Communism, against the more advanced opposition parties, as well as against its reactionary adversaries?

@@ -1,3 +1,10 @@
+# Title: The Mummy!
+
+## Author: Jane Webb
+
+## Year: 1827
+
+-------
 _"Why hast thou disquieted me, to bring me up?"_
 I Sam., xxviii. 15.
 

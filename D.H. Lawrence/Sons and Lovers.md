@@ -1,3 +1,10 @@
+# Title: Sons and Lovers
+
+## Author: D.H. Lawrence
+
+## Year: 1913
+
+-------
 
 ##  PART ONE
 

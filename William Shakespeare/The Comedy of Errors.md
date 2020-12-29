@@ -1,3 +1,10 @@
+# Title: The Comedy of Errors
+
+## Author: William Shakespeare
+
+## Year: 1594
+
+-------
 
 ### ACT I
 

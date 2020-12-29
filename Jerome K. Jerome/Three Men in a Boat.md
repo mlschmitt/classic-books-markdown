@@ -1,3 +1,10 @@
+# Title: Three Men in a Boat
+
+## Author: Jerome K. Jerome
+
+## Year: 1889
+
+-------
 
 ## CHAPTER I.
 

@@ -1,3 +1,10 @@
+# Title: War of the Worlds
+
+## Author: H.G. Wells
+
+## Year: 1898
+
+-------
 _But who shall dwell in these worlds if they be inhabited?_
 _Are we or they Lords of the World?_
 _And how are all things made for man?_

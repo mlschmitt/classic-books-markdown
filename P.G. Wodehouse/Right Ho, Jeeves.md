@@ -1,3 +1,10 @@
+# Title: Right Ho, Jeeves
+
+## Author: P.G. Wodehouse
+
+## Year: 1934
+
+-------
 
 ## Chapter 1
 

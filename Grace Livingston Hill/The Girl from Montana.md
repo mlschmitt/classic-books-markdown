@@ -1,3 +1,10 @@
+# Title: The Girl from Montana
+
+## Author: Grace Livingston Hill
+
+## Year: 1907
+
+-------
 
 ## CHAPTER I - THE GIRL, AND A GREAT PERIL
 

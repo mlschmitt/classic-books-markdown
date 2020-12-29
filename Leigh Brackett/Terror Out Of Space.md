@@ -1,3 +1,10 @@
+# Title: Terror Out Of Space
+
+## Author: Leigh Brackett
+
+## Year: 1944
+
+-------
 
 ### I
 

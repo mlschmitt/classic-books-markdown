@@ -1,3 +1,10 @@
+# Title: The Pickwick Papers
+
+## Author: Charles Dickens
+
+## Year: 1836
+
+-------
 
 ##  CHAPTER I. THE PICKWICKIANS
 

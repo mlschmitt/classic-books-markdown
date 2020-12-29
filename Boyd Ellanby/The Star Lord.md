@@ -1,3 +1,10 @@
+# Title: The Star Lord
+
+## Author: Boyd Ellanby
+
+## Year: 1953
+
+-------
 The _Star Lord_ waited, poised for her maiden voyage. The gigantic silvery spindle, still cradled in its scaffoldings, towered upwards against the artificial sky of Satellite Y.
 
 The passengers were beginning to come on board before Captain Josiah Evans had finished checking the reports of his responsible officers. The ship was ready for space, now, and there was nothing more he could do until takeoff. With long, deliberate steps he walked to his cabin, closed the door, and in the privacy he had come to regard as the greatest luxury life had to offer him, he sank into his chair and reached for the post-bag which had been delivered by the morning's rocket ferry from earth.

@@ -1,3 +1,10 @@
+# Title: Fanshawe
+
+## Author: Nathaniel Hawthorne
+
+## Year: 1828
+
+-------
 
 ### CHAPTER I.
 

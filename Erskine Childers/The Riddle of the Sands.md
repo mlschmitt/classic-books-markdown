@@ -1,3 +1,10 @@
+# Title: The Riddle of the Sands
+
+## Author: Erskine Childers
+
+## Year: 1903
+
+-------
 
 ### Preface
 

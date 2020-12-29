@@ -1,3 +1,10 @@
+# Title: The Time Traders
+
+## Author: Andre Alice Norton
+
+## Year: 1958
+
+-------
 
 ## CHAPTER 1
 

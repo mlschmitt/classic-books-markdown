@@ -1,3 +1,10 @@
+# Title: A Treatise of Human Nature
+
+## Author: David Hume
+
+## Year: 1738
+
+-------
 
 ##  ADVERTISEMENT
 

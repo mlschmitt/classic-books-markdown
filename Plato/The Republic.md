@@ -1,3 +1,10 @@
+# Title: The Republic
+
+## Author: Plato
+
+## Year: 380 BC
+
+-------
 _Translated by Benjamin Jowett_
 
 ### BOOK I.

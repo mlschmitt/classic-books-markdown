@@ -1,3 +1,10 @@
+# Title: The Jungle
+
+## Author: Upton Sinclair
+
+## Year: 1906
+
+-------
 
 ##  Chapter 1 
 

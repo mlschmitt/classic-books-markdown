@@ -1,3 +1,10 @@
+# Title: The Dhammapada
+
+## Author: Anonymous
+
+## Year: 300 BC
+
+-------
 
 ##  Chapter I. The Twin-Verses
 

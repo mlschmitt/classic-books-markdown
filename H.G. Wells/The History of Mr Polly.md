@@ -1,3 +1,10 @@
+# Title: The History of Mr Polly
+
+## Author: H.G. Wells
+
+## Year: 1910
+
+-------
 
 ## Chapter the First
 

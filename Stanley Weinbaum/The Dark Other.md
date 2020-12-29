@@ -1,3 +1,10 @@
+# Title: The Dark Other
+
+## Author: Stanley Weinbaum
+
+## Year: 1950
+
+-------
 
 ##  I - Pure Horror
 

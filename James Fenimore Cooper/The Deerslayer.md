@@ -1,3 +1,10 @@
+# Title: The Deerslayer
+
+## Author: James Fenimore Cooper
+
+## Year: 1841
+
+-------
 
 ##  Chapter I.
 

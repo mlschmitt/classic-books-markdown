@@ -1,3 +1,10 @@
+# Title: The Man-Wolf and Other Tales
+
+## Author: Emile Erckmann
+
+## Year: 1876
+
+-------
 
 ## THE MAN-WOLF.
 

@@ -1,3 +1,10 @@
+# Title: Queen Lucia
+
+## Author: E.F. Benson
+
+## Year: 1920
+
+-------
 
 ## Chapter One
 

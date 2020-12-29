@@ -1,3 +1,10 @@
+# Title: A Descent into the Maelström
+
+## Author: Edgar Allan Poe
+
+## Year: 1841
+
+-------
 _The ways of God in Nature, as in Providence, are not as our_
 _ways;  nor are the models that we frame any way commensurate to the_
 _vastness, profundity, and unsearchableness of His works, which have_

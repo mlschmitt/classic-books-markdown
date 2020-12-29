@@ -1,3 +1,10 @@
+# Title: My Man Jeeves
+
+## Author: P.G. Wodehouse
+
+## Year: 1919
+
+-------
 
 ## LEAVE IT TO JEEVES
 

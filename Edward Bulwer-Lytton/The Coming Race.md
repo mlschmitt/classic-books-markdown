@@ -1,3 +1,10 @@
+# Title: The Coming Race
+
+## Author: Edward Bulwer-Lytton
+
+## Year: 1871
+
+-------
 
 ##  Chapter I. 
 

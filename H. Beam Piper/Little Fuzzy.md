@@ -1,3 +1,10 @@
+# Title: Little Fuzzy
+
+## Author: H. Beam Piper
+
+## Year: 1962
+
+-------
 
 ## I
 

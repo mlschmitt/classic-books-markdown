@@ -1,3 +1,10 @@
+# Title: The Bet
+
+## Author: Anton Chekhov
+
+## Year: 1889
+
+-------
 
 ## I
 

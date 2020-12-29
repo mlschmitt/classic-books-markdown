@@ -1,3 +1,10 @@
+# Title: Tender Buttons
+
+## Author: Gertrude Stein
+
+## Year: 1914
+
+-------
 
 ## OBJECTS
 

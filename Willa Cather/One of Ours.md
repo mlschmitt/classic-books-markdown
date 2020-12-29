@@ -1,3 +1,10 @@
+# Title: One of Ours
+
+## Author: Willa Cather
+
+## Year: 1922
+
+-------
 
 ## Book One: On Lovely Creek
 

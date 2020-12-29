@@ -1,3 +1,10 @@
+# Title: The Man Who Would Be King
+
+## Author: Rudyard Kipling
+
+## Year: 1888
+
+-------
 "Brother to a Prince and fellow to a beggar if he be found worthy."
 
 The Law, as quoted, lays down a fair conduct of life, and one not easy to follow. I have been fellow to a beggar again and again under circumstances which prevented either of us finding out whether the other was worthy. I have still to be brother to a Prince, though I once came near to kinship with what might have been a veritable King and was promised the reversion of a Kingdom -- army, law-courts, revenue and policy all complete. But, to-day, I greatly fear that my King is dead, and if I want a crown I must go and hunt it for myself.

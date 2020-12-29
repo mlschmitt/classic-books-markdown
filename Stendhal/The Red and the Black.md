@@ -1,3 +1,10 @@
+# Title: The Red and the Black
+
+## Author: Stendhal
+
+## Year: 1830
+
+-------
 _Translated by Horace B. Samuel_
 
 #### CHAPTER I - A SMALL TOWN

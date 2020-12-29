@@ -1,3 +1,10 @@
+# Title: The Railway Children
+
+## Author: Edith Nesbit
+
+## Year: 1905
+
+-------
 
 ##  Chapter I. The beginning of things.
 

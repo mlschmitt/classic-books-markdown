@@ -1,3 +1,10 @@
+# Title: The Moonstone
+
+## Author: Wilkie Collins
+
+## Year: 1868
+
+-------
 
 ##  PROLOGUE - THE STORMING OF SERINGAPATAM (1799)
 

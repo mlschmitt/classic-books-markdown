@@ -1,3 +1,10 @@
+# Title: The Lodger
+
+## Author: Marie Belloc Lowndes
+
+## Year: 1913
+
+-------
 
 ## CHAPTER I
 

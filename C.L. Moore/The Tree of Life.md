@@ -1,3 +1,10 @@
+# Title: The Tree of Life
+
+## Author: C.L. Moore
+
+## Year: 1936
+
+-------
 Over time-ruined Illar the searching planes swooped and circled. Northwest Smith, peering up at them with a steel-pale stare from the shelter of a half-collapsed temple, thought of vultures wheeling above carrion. All day long now they had been raking these ruins for him. Presently, he knew, thirst would begin to parch his throat and hunger to gnaw at him. There was neither food nor water in these ancient Martian ruins, and he knew that it could be only a matter of time before the urgencies of his own body would drive him out to signal those wheeling Patrol ships and trade his hard-won liberty for food and drink. He crouched lower under the shadow of the temple arch and cursed the accuracy of the Patrol gunner whose flame-blast had caught his dodging ship just at the edge of Illar's ruins.
 
 Presently it occurred to him that in most Martian temples of the ancient days an ornamental well had stood in the outer court for the benefit of wayfarers. Of course all water in it would be a million years dry now, but for lack of anything better to do he rose from his seat at the edge of the collapsed central dome and made his cautious way by still intact corridors toward the front of the temple. He paused in a tangle of wreckage at the courtyard's edge and looked out across the sun-drenched expanse of pavement toward that ornate well that once had served travelers who passed by here in the days when Mars was a green planet.

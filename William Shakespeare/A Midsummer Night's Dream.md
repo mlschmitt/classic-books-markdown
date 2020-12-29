@@ -1,3 +1,10 @@
+# Title: A Midsummer Night's Dream
+
+## Author: William Shakespeare
+
+## Year: 1590
+
+-------
 
 ### ACT I
 

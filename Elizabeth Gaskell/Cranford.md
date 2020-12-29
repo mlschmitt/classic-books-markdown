@@ -1,3 +1,10 @@
+# Title: Cranford
+
+## Author: Elizabeth Gaskell
+
+## Year: 1851
+
+-------
 
 ## CHAPTER I--OUR SOCIETY
 

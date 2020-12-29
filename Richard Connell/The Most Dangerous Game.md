@@ -1,3 +1,10 @@
+# Title: The Most Dangerous Game
+
+## Author: Richard Connell
+
+## Year: 1924
+
+-------
 "Off there to the right--somewhere--is a large island," said Whitney." It's rather a mystery--"
 
 "What island is it?" Rainsford asked.

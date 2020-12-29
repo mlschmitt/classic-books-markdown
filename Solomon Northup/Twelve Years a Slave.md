@@ -1,3 +1,10 @@
+# Title: Twelve Years a Slave
+
+## Author: Solomon Northup
+
+## Year: 1853
+
+-------
 
 ## CHAPTER I.
 

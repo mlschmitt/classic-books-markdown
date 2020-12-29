@@ -1,3 +1,10 @@
+# Title: Cabin Fever
+
+## Author: B.M. Bower
+
+## Year: 1918
+
+-------
 
 ##  CHAPTER ONE. THE FEVER MANIFESTS ITSELF 
 

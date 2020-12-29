@@ -1,3 +1,10 @@
+# Title: Tess of the Storm Country
+
+## Author: Grace Miller White
+
+## Year: 1909
+
+-------
 
 ### CHAPTER I
 

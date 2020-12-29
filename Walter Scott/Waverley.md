@@ -1,3 +1,10 @@
+# Title: Waverley
+
+## Author: Walter Scott
+
+## Year: 1814
+
+-------
 
 ## CHAPTER I - INTRODUCTORY
 

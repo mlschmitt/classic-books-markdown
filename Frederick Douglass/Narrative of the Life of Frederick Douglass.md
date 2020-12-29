@@ -1,3 +1,10 @@
+# Title: Narrative of the Life of Frederick Douglass
+
+## Author: Frederick Douglass
+
+## Year: 1845
+
+-------
 
 ##  CHAPTER I 
 

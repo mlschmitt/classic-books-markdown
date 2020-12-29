@@ -1,3 +1,10 @@
+# Title: The Time Machine
+
+## Author: H.G. Wells
+
+## Year: 1895
+
+-------
 
 ## CHAPTER 1
 

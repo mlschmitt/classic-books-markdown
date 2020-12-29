@@ -1,3 +1,10 @@
+# Title: The Legend of Sleepy Hollow
+
+## Author: Washington Irving
+
+## Year: 1820
+
+-------
 
 ## FOUND AMONG THE PAPERS OF THE LATE DIEDRICH KNICKERBOCKER
 

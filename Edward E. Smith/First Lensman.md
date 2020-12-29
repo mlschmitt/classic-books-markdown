@@ -1,3 +1,10 @@
+# Title: First Lensman
+
+## Author: Edward E. Smith
+
+## Year: 1950
+
+-------
 
 ## CHAPTER 1
 

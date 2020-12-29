@@ -1,3 +1,10 @@
+# Title: The Legends and Myths of Hawai'i
+
+## Author: David Kalakaua
+
+## Year: 1888
+
+-------
 
 ## INTRODUCTION.
 

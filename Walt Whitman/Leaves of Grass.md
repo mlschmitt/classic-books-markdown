@@ -1,3 +1,10 @@
+# Title: Leaves of Grass
+
+## Author: Walt Whitman
+
+## Year: 1855
+
+-------
 
 #  BOOK I. INSCRIPTIONS
 

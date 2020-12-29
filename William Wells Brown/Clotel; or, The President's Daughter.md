@@ -1,3 +1,10 @@
+# Title: Clotel; or, The President's Daughter
+
+## Author: William Wells Brown
+
+## Year: 1853
+
+-------
 
 # CHAPTER I - THE NEGRO SALE
 

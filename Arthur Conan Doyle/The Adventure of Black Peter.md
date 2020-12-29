@@ -1,3 +1,10 @@
+# Title: The Adventure of Black Peter
+
+## Author: Arthur Conan Doyle
+
+## Year: 1904
+
+-------
 I have never known my friend to be in better form, both mental and physical, than in the year '95. His increasing fame had brought with it an immense practice, and I should be guilty of an indiscretion if I were even to hint at the identity of some of the illustrious clients who crossed our humble threshold in Baker Street. Holmes, however, like all great artists, lived for his art's sake, and, save in the case of the Duke of Holdernesse, I have seldom known him claim any large reward for his inestimable services. So unworldly was he--or so capricious--that he frequently refused his help to the powerful and wealthy where the problem made no appeal to his sympathies, while he would devote weeks of most intense application to the affairs of some humble client whose case presented those strange and dramatic qualities which appealed to his imagination and challenged his ingenuity.
 
 In this memorable year '95, a curious and incongruous succession of cases had engaged his attention, ranging from his famous investigation of the sudden death of Cardinal Tosca--an inquiry which was carried out by him at the express desire of His Holiness the Pope--down to his arrest of Wilson, the notorious canary-trainer, which removed a plague-spot from the East End of London. Close on the heels of these two famous cases came the tragedy of Woodman's Lee, and the very obscure circumstances which surrounded the death of Captain Peter Carey. No record of the doings of Mr. Sherlock Holmes would be complete which did not include some account of this very unusual affair.

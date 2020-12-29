@@ -1,3 +1,10 @@
+# Title: Commentaries on the Gallic War
+
+## Author: Julius Caesar
+
+## Year: 58 BC
+
+-------
 _Translated by W. A. McDevitte and W. S. Bohn._
 
 

@@ -1,3 +1,10 @@
+# Title: Volsunga Saga
+
+## Author: Anonymous
+
+## Year: 1250
+
+-------
 
 ##  CHAPTER I. Of Sigi, the Son of Odin. 
 

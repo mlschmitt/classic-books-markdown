@@ -1,3 +1,10 @@
+# Title: Babbitt
+
+## Author: Sinclair Lewis
+
+## Year: 1922
+
+-------
 
 ##  CHAPTER I 
 

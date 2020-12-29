@@ -1,3 +1,10 @@
+# Title: The Quran
+
+## Author: Various
+
+## Year: 632
+
+-------
 _Translated by M.H. Shakir_
 
 

@@ -1,3 +1,10 @@
+# Title: Anne's House of Dreams
+
+## Author: Lucy Maud Montgomery
+
+## Year: 1917
+
+-------
 
 ###  CHAPTER 1 - IN THE GARRET OF GREEN GABLES
 

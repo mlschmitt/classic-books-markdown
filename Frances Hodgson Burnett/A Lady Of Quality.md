@@ -1,3 +1,10 @@
+# Title: A Lady Of Quality
+
+## Author: Frances Hodgson Burnett
+
+## Year: 1896
+
+-------
 Being a most curious, hitherto unknown
 history, as related by Mr. Isaac Bickerstaff
 but not presented to the World of

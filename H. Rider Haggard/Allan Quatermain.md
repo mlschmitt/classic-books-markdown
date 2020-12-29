@@ -1,3 +1,10 @@
+# Title: Allan Quatermain
+
+## Author: H. Rider Haggard
+
+## Year: 1887
+
+-------
 
 ##  INTRODUCTION
 

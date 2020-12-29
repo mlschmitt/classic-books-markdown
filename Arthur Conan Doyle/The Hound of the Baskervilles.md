@@ -1,3 +1,10 @@
+# Title: The Hound of the Baskervilles
+
+## Author: Arthur Conan Doyle
+
+## Year: 1902
+
+-------
 
 ##  Chapter 1. Mr. Sherlock Holmes 
 

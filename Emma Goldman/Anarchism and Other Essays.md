@@ -1,3 +1,10 @@
+# Title: Anarchism and Other Essays
+
+## Author: Emma Goldman
+
+## Year: 1910
+
+-------
 
 ### ANARCHISM: WHAT IT REALLY STANDS FOR
 

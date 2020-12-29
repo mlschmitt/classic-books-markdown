@@ -1,3 +1,10 @@
+# Title: Symzonia: A Voyage of Discovery
+
+## Author: Adam Seaborn
+
+## Year: 1820
+
+-------
 
 ## A VOYAGE.
 

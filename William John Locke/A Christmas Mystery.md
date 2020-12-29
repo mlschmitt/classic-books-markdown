@@ -1,3 +1,10 @@
+# Title: A Christmas Mystery
+
+## Author: William John Locke
+
+## Year: 1910
+
+-------
 Three men who had gained great fame and honour throughout the world met unexpectedly in front of the bookstall at Paddington Station. Like most of the great ones of the earth they were personally acquainted, and they exchanged surprised greetings.
 
 Sir Angus McCurdie, the eminent physicist, scowled at the two others beneath his heavy black eyebrows.

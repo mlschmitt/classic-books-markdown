@@ -1,3 +1,10 @@
+# Title: William Wilson
+
+## Author: Edgar Allan Poe
+
+## Year: 1839
+
+-------
 _What say of it? what say of CONSCIENCE grim,_
 _That spectre in my path?_
 

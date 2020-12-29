@@ -1,3 +1,10 @@
+# Title: Dubliners
+
+## Author: James Joyce
+
+## Year: 1914
+
+-------
 
 ##  THE SISTERS 
 

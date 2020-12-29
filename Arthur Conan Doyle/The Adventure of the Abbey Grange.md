@@ -1,3 +1,10 @@
+# Title: The Adventure of the Abbey Grange
+
+## Author: Arthur Conan Doyle
+
+## Year: 1904
+
+-------
 It was on a bitterly cold and frosty morning, towards the end of the winter of '97, that I was awakened by a tugging at my shoulder. It was Holmes. The candle in his hand shone upon his eager, stooping face, and told me at a glance that something was amiss.
 
 "Come, Watson, come!" he cried. "The game is afoot. Not a word! Into your clothes and come!"

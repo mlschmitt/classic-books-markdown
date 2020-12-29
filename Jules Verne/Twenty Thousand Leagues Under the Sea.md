@@ -1,3 +1,10 @@
+# Title: Twenty Thousand Leagues Under the Sea
+
+## Author: Jules Verne
+
+## Year: 1870
+
+-------
 
 #  PART ONE 
 

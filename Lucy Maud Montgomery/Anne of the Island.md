@@ -1,3 +1,10 @@
+# Title: Anne of the Island
+
+## Author: Lucy Maud Montgomery
+
+## Year: 1915
+
+-------
 
 ##  Chapter I - The Shadow of Change 
 

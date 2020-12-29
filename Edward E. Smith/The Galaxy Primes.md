@@ -1,3 +1,10 @@
+# Title: The Galaxy Primes
+
+## Author: Edward E. Smith
+
+## Year: 1959
+
+-------
 
 ## CHAPTER 1
 

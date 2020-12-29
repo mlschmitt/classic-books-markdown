@@ -1,3 +1,10 @@
+# Title: Ecclesiastical History of the English People
+
+## Author: Venerable Bede
+
+## Year: 731
+
+-------
 _Translated by A.M. Sellar_
 
 ## BOOK I

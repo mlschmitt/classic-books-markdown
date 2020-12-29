@@ -1,3 +1,10 @@
+# Title: The Headless Horseman
+
+## Author: Mayne Reid
+
+## Year: 1865
+
+-------
 
 ## "A Strange Tale of Texas"
 
